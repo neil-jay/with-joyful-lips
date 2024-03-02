@@ -22,4 +22,4 @@ Else, you may buy the hymn book from the author.
 <br>
 <br>
 Formatted matter is coming...
-Any suggestion is welcome.
+Any suggestion is welcome!
