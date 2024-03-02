@@ -21,5 +21,5 @@ This repo is made available for the purpose of pure lyrics only.<br>
 Else, you may buy the hymn book from the author.
 <br>
 <br>
-Formatted matter is coming...
+Formatted version is coming...<br>
 Any suggestion is welcome!
