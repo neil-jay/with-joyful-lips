@@ -21,5 +21,13 @@ This repo is made available for the purpose of pure lyrics only.<br>
 Else, you may buy the hymn book from the author.
 <br>
 <br>
+
+Steps applied to convert the text to usable format:<br>
+- First phase: Unformatting the text<br>
+- Second phase: Formatting the text in plain text<br>
+- Third phase: Adding Missing hymnal lyrics and formatting<br>
+- Fourth phase: Adding missing titles<br>
+- Fifth phase: Correcting the spelling mistakes/ text<br><br>
+
 Formatted version is updating. Stay tuned...<br>
 Any suggestion is welcome!
