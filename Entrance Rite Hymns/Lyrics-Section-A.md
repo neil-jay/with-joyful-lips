@@ -830,174 +830,238 @@ Let the ends of the earth, let the sea and all it holds, make music before our K
 
 A.112
 How lovely is your dwelling place, O Lord
-		What peace and joy to feel so close to you
-		Our heart and soul ring out their joy this morning
-		We long to meet you, God, the living God
-	1.	The sparrow even here has found a shelter
-		The swallow by your altars builds a nest
-		O happy those whose dwelling is your temple
-		Who day by day your praises sing O Lord
-	2.	One day within your courts indeed is better
-		Than thousand days elsewhere afar from you
-		To wait upon the threshold of your temple
-		Is better than to waste our life in vain
-	3.	O Lord, you are our strength and our protection
-		Your favour and your glory, grant us now
-		Refuse not any good to those who love you
-		The people that is yours for evermore
-A.114	We have come into His house
-	1.	We have come into His house
-		And gathered in his name to worship him (3)
-		…… Christ the Lord, worship him, Jesus Christ the Lord
-	2.	Let’s forget about ourselves
-		And concentrate on him and worship him (3)
-		…… Christ the Lord, worship him, Jesus Christ the Lord
-	3.	We have come into his house
-		To magnify the Lord and praise his name (3)
-		……. Holy name, praise him, Jesus Christ the Lord
+What peace and joy to feel so close to you
+Our heart and soul ring out their joy this morning
+We long to meet you, God, the living God
+
+The sparrow even here has found a shelter
+The swallow by your altars builds a nest
+O happy those whose dwelling is your temple
+Who day by day your praises sing O Lord
+
+One day within your courts indeed is better
+Than thousand days elsewhere afar from you
+To wait upon the threshold of your temple
+Is better than to waste our life in vain
+
+O Lord, you are our strength and our protection
+Your favour and your glory, grant us now
+Refuse not any good to those who love you
+The people that is yours for evermore
+
+A.114
+
+We have come into His house
+And gathered in his name to worship him (3)
+Christ the Lord, worship him, Jesus Christ the Lord
+
+Let’s forget about ourselves
+And concentrate on him and worship him (3)
+Christ the Lord, worship him, Jesus Christ the Lord
+
+We have come into his house
+To magnify the Lord and praise his name (3)
+Holy name, praise him, Jesus Christ the Lord
 	
-A.116	Come ring out your joy to the Saviour,
-		Alleluia, alleluia
-		Hail the rock who rescues his people
-		Alleluia, alleluia
-	1.	Let us come before Him with thanks
-		And with songs of joy
-		For He’s our king above other gods
-		The Lord of the earth and the heavens
-	2.	Come, let’s bow and bend low before
-		The Creator of Life
-		For He’s our God and we are his flock
-		The people that feeds in his pasture
-	3.	To the voice of the Lord today
-		You must listen with care
-		O harden not your heart as before
-		But open your minds to the good news
-A.118	Rejoice Evermore
-	1.	Rejoice evermore for this is the will of God (3)
-		……… in Christ Jesus concerning you
-		Sing alleluia to the Lord our God
-		Enter his courts with songs of praise (2)
-	2.	Pray without ceasing for this is the will of God (3)
-		…….. in Christ Jesus concerning you
-	3.	In everything give thanks for this is the will of God (3)
-		…….. in Christ Jesus concerning you
-	4.	Rejoice…. Pray…. In everything….
-		……. in Christ Jesus concerning you
-A.119	As we gather may your Spirit work within us
-		As we gather may we glorify your name
-		Knowing well that as our hearts begin to worship
-		We’ll be blessed because we came (2)
-	1.	We are people born of water and the Spirit
-		We are people come to celebrate God’s love
-		We have come to hear the Word, we have come to share the bread
-		We have come to sing our praises to God above
-	2.	We are sons and daughters of the resurrection
-		Halleluiah is the song we sing with joy
-		All the praises we proclaim, go to God in Jesus’ name
-		Through his cross he has become our great Amen
-	3.	We are folk who show concern for one another
-		Yes, we know that God has given gifts to share
-		Whether rich or whether poor, down and out or blest with more
-		We are gathered here to tell you how much we care
-A.120	The steadfast love of the Lord never ceases
-		His mercies never come to an end
-		The are new every morning, new every morning
-		Great is your faithfulness, O Lord
-		Great is your faithfulness
-	1.	The Lord is good to those who wait for him
-		To the soul that seeks Him
-		It is good that we should wait quietly
-		For the salvation of the Lord
-	2.	Let us test and examine all our ways
-		And return unto the Lord
-		Let us lift our hearts and not our hands alone
-		Unto the Lord who is in heaven
-	3.	To trample underfoot a prisoner
-		To deny a human right
-		To employ injustice in a court of law
-		Such things the Lord does not approve
-A.121	Enter the house of the Lord
-	1.	Enter the house of the Lord, our God
-		Enter the house of the Lord
-		Sing of our God who reigns above
-		Sing of his goodness all our days
-		Come, be of one accord
-		Lift up our voices, sing his praise
-		As we enter the house of the Lord
-	2.	Enter the house of the Lord, our God
-		Enter the house of the Lord
-		Sing of his power and majesty
-		Sing of his Son who made us free
-		He magnified our human worth
-		And our life restored
-		Sing of his kingdom here on earth
-		As we enter the house of the Lord
-A.122	Come and go with me
-	1.	Come and go with me to my Father’s house
-		………  where there’s joy, joy, joy.
-	2.	Jesus is the way of my Father’s house…
-	3.	Jesus is the light in my Father’s house…
-	4.	There is room for all in my Father’s house…..
-	5.	We will praise the Lord in my Father’s house….
-A.124	Wherever two or three are gathered in my name
-		I will be with you, the Lord proclaimed
-	1.	Come, brothers, come, sisters gather round the Lord
-		Come, brothers, come, sisters hear his holy Word
-		And he will bring us happiness, and he will bring us peace
-		His goodness is eternal and his wonders never cease
-	2.	Come, brothers, come, sisters come without delay
-		Jesus, our Saviour is here with us today
-		He said: “Where you are gathered, I will be there with you”
-		This promise he has given and his word is always true
-	3.	Come, brothers, come, sisters, gather here to pray
-		Sing to the Lord, he is here with us to stay
-		So lift your hearts to Jesus
-		And he will always hear
-		The words are not important, for their meaning will be clear
-	A.125	Lift up your hands
-	1.	Lift up your hands and worship the Lord, (3)
-		…. Worship his holy name
+A.116
+Come ring out your joy to the Saviour,
+Alleluia, alleluia
+Hail the rock who rescues his people
+Alleluia, alleluia
+
+Let us come before Him with thanks
+And with songs of joy
+For He’s our king above other gods
+The Lord of the earth and the heavens
+
+Come, let’s bow and bend low before
+The Creator of Life
+For He’s our God and we are his flock
+The people that feeds in his pasture
+
+To the voice of the Lord today
+You must listen with care
+O harden not your heart as before
+But open your minds to the good news
+
+A.118
+Rejoice evermore for this is the will of God (3)
+in Christ Jesus concerning you
+Sing alleluia to the Lord our God
+Enter his courts with songs of praise (2)
+
+Pray without ceasing for this is the will of God (3)
+...in Christ Jesus concerning you
+
+In everything give thanks for this is the will of God (3)
+….. in Christ Jesus concerning you
+
+Rejoice…. Pray…. In everything….
+……. in Christ Jesus concerning you
+
+A.119
+As we gather may your Spirit work within us
+As we gather may we glorify your name
+Knowing well that as our hearts begin to worship
+We’ll be blessed because we came (2)
+
+We are people born of water and the Spirit
+We are people come to celebrate God’s love
+We have come to hear the Word, we have come to share the bread
+We have come to sing our praises to God above
+
+We are sons and daughters of the resurrection
+Halleluiah is the song we sing with joy
+All the praises we proclaim, go to God in Jesus’ name
+Through his cross he has become our great Amen
+
+We are folk who show concern for one another
+Yes, we know that God has given gifts to share
+Whether rich or whether poor, down and out or blest with more
+We are gathered here to tell you how much we care
+
+A.120
+The steadfast love of the Lord never ceases
+His mercies never come to an end
+The are new every morning, new every morning
+Great is your faithfulness, O Lord
+Great is your faithfulness
+
+The Lord is good to those who wait for him
+To the soul that seeks Him
+It is good that we should wait quietly
+For the salvation of the Lord
+
+Let us test and examine all our ways
+And return unto the Lord
+Let us lift our hearts and not our hands alone
+Unto the Lord who is in heaven
+
+To trample underfoot a prisoner
+To deny a human right
+To employ injustice in a court of law
+Such things the Lord does not approve
+
+A.121
+Enter the house of the Lord
+
+Enter the house of the Lord, our God
+Enter the house of the Lord
+Sing of our God who reigns above
+Sing of his goodness all our days
+Come, be of one accord
+Lift up our voices, sing his praise
+As we enter the house of the Lord
+
+Enter the house of the Lord, our God
+Enter the house of the Lord
+Sing of his power and majesty
+Sing of his Son who made us free
+He magnified our human worth
+And our life restored
+Sing of his kingdom here on earth
+As we enter the house of the Lord
+
+A.122	
+
+Come and go with me to my Father’s house
+...where there’s joy, joy, joy.
+	
+Jesus is the way of my Father’s house…
+
+Jesus is the light in my Father’s house…
+
+There is room for all in my Father’s house…..
+
+We will praise the Lord in my Father’s house….
+
+A.124
+Wherever two or three are gathered in my name
+I will be with you, the Lord proclaimed
+
+Come, brothers, come, sisters gather round the Lord
+Come, brothers, come, sisters hear his holy Word
+And he will bring us happiness, and he will bring us peace
+His goodness is eternal and his wonders never cease
+
+Come, brothers, come, sisters come without delay
+Jesus, our Saviour is here with us today
+He said: “Where you are gathered, I will be there with you”
+This promise he has given and his word is always true
+
+Come, brothers, come, sisters, gather here to pray
+Sing to the Lord, he is here with us to stay
+So lift your hearts to Jesus
+And he will always hear
+The words are not important, for their meaning will be clear
+
+A.125
+Lift up your hands
+
+Lift up your hands and worship the Lord, (3)
+…. Worship his holy name
 		
-	2.	Humble yourself and worship the Lord….
-	3.	Call on His name and worship the Lord….
-	4.	Fall on your knees and worship the Lord…
-A.126	As we are gathered Jesus is here;
-		One with each other, Jesus is here
-	1.	Joined by the Spirit, washed in the Blood
-		Part of the body, the Church of God
-	2.	Many the branches, one only Vine
-		Forming a Kingdom of peace and joy
-	3.	Bound as one people, rooted in love
-		God’s kingly nation, new Israel
-A.127	Jubilate, everybody
-		Serve the Lord in all your ways
-		And come before his presence singing
-		Enter now his courts with praise
-	1.	For the Lord  our God is gracious
-		And his mercy’s everlasting
-		Jubilate, Jubilate, Jubilate Deo!
-	2.	He’s our maker, we his creatures
-		We’re his sheep and He’s our shephered
+Humble yourself and worship the Lord….
+
+Call on His name and worship the Lord….
+
+Fall on your knees and worship the Lord…
+
+A.126
+As we are gathered Jesus is here;
+One with each other, Jesus is here
+
+Joined by the Spirit, washed in the Blood
+Part of the body, the Church of God
+
+Many the branches, one only Vine
+Forming a Kingdom of peace and joy
+
+Bound as one people, rooted in love
+God’s kingly nation, new Israel
+
+A.127
+Jubilate, everybody
+Serve the Lord in all your ways
+And come before his presence singing
+Enter now his courts with praise
+
+For the Lord  our God is gracious
+And his mercy’s everlasting
+Jubilate, Jubilate, Jubilate Deo!
+
+He’s our maker, we his creatures
+We’re his sheep and He’s our shephered
 		
-	3.	To the Father, Son and Spirit
-		Now and evermore give glory	
-A.133	Come on and celebrate (3) ……. and sing,
-		Celebrate and sing to the Lord (2)
-	1.	Come on and celebrate
-		His gift of love we will celebrate
-		The Son of God who saved us and gave us life
-		We’ll shout your praise, O Lord
-		You give us joy nothing else can bring
-		We’ll give to you our offering in celebration praise
-	2.	Lift up your voice to praise
-		The name above ev’ry other name
-		Jesus the Christ who saved us from sin and death
-		Let’s bend our knees to Him
-		Our tongue confess that He’s Lord indeed
-		Let’s give to Him our offering in celebration praise
-A.136		When the Spirit of the Lord
-	1.	When the Spirit of the Lord is within my heart
-		I will sing as David sang(2)
-		I will sing (3)  as David Sang
-		I will sing (3) as David Sang
-	2.	…… clap	3.      …..dance 	4.      ….. Praise
+To the Father, Son and Spirit
+Now and evermore give glory	
+
+A.133
+Come on and celebrate (3) ……. and sing,
+Celebrate and sing to the Lord (2)
+
+Come on and celebrate
+His gift of love we will celebrate
+The Son of God who saved us and gave us life
+We’ll shout your praise, O Lord
+You give us joy nothing else can bring
+We’ll give to you our offering in celebration praise
+
+Lift up your voice to praise
+The name above ev’ry other name
+Jesus the Christ who saved us from sin and death
+Let’s bend our knees to Him
+Our tongue confess that He’s Lord indeed
+Let’s give to Him our offering in celebration praise
+
+A.136
+When the Spirit of the Lord
+
+When the Spirit of the Lord is within my heart
+I will sing as David sang(2)
+I will sing (3)  as David Sang
+I will sing (3) as David Sang
+
+…… clap
+…..dance 	
+... Praise
