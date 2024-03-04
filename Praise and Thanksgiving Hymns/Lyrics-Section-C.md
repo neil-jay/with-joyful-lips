@@ -1,501 +1,501 @@
-C.1
-This is the day which the Lord has made
-Let us be glad and rejoice;
-He is the maker of heaven and earth
-Praise him with heart and with voice
-Alleluia, alleluia, alleluia, alleluia
+C.1<br>
+This is the day which the Lord has made<br>
+Let us be glad and rejoice;<br>
+He is the maker of heaven and earth<br>
+Praise him with heart and with voice<br>
+Alleluia, alleluia, alleluia, alleluia<br>
 
-This is the day which the Lord has made
-Sing of his bounty and love
-Thank him this day for his wonderful gifts
-Poured out on us from above
+This is the day which the Lord has made<br>
+Sing of his bounty and love<br>
+Thank him this day for his wonderful gifts<br>
+Poured out on us from above<br>
 
-This is the day which the Lord has made
-Cry out in praise of his name;
-We have assembled to ponder his word
-May we his message proclaim
+This is the day which the Lord has made<br>
+Cry out in praise of his name;<br>
+We have assembled to ponder his word<br>
+May we his message proclaim<br>
 
-This is the day which the Lord has made
-Rising, he conquered all strife
-having attended his banquet of love
-Rise in his newness of life
+This is the day which the Lord has made<br>
+Rising, he conquered all strife<br>
+having attended his banquet of love<br>
+Rise in his newness of life<br>
+<br>
+C4.<br>
+There are numerous strings in your lute<br>
+let me add my own among them<br>
 
-C4.
-There are numerous strings in your lute
-let me add my own among them
+Then when you smite your chords<br>
+My heart will break its silence<br>
+And my heart will be one with your song<br>
 
-Then when you smite your chords
-My heart will break its silence
-And my heart will be one with your song
+Amidst your numberless stars<br>
+Let me place my own little lamp<br>
 
-Amidst your numberless stars
-Let me place my own little lamp
+In the dance of your festival of lights<br>
+My heart will throb and<br>
+My life will be one with your smile<br>	
+<br>
+CC.6<br>
+Great indeed are your works, O Lord<br>
+Now and evermore<br>
+Great indeed are your works, O Lord<br>
+Now and evermore<br>
 
-In the dance of your festival of lights
-My heart will throb and 
-My life will be one with your smile	
+The universe, night and day<br>
+tells of all your wonders<br>
+You are our life and our light<br>
+We shall praise you always<br>
 
-CC.6
-Great indeed are your works, O Lord
-Now and evermore
-Great indeed are your works, O Lord
-Now and evermore
+You are the path which we tread<br>
+You will lead us onward<br>
+From every corner of earth<br>
+All the nations gather<br>
 
-The universe, night and day
-tells of all your wonders
-You are our life and our light
-We shall praise you always
+You lead us all by the hand<br>
+to the heavenly kingdom<br>
+Then at the end of all time<br>
+You will come in glory<br>
+<br>
+C.17<br>
+O give thanks to the Lord, for he is good (3)<br>
+Yes eternal is his love<br>
 
-You are the path which we tread
-You will lead us onward
-From every corner of earth
-All the nations gather
+I will sing to my God never ceasing<br>
+all my life I will tell all his wonders<br>
+He’s the maker of all earth and heaven<br>
+of the ocean the seas and all they hold<br>
 
-You lead us all by the hand
-to the heavenly kingdom
-Then at the end of all time
-You will come in glory
+The Almighty is faithful for ever<br>
+He is just to the poor and the outraged<br>
+It is He who gives bread to the hungry<br>
+Who delivers the captives from their chains<br>
 
-C.17
-O give thanks to the Lord, for he is good (3)
-Yes eternal is his love
+He gives sight to the blind in his mercy<br>
+and he raises the lowly the humble<br>
+It is he who gives shelter to strangers<br>
+Every orphan and widow he defends<br>
 
-I will sing to my God never ceasing
-all my life I will tell all his wonders
-He’s the maker of all earth and heaven
-of the ocean the seas and all they hold
+To the just he is gracious and loving<br>
+But the wicked he foils and they stumble<br>
+Yes, the Lord reigns for ever and ever<br>
+He is king over Sion without end<br>
+<br>
+C.22<br>
+Alleluia, praise the Lord<br>
+Alleluia, alleluia, alleluia, alleluia<br>
 
-The Almighty is faithful for ever
-He is just to the poor and the outraged
-It is He who gives bread to the hungry
-Who delivers the captives from their chains
+Praise the Lord in his holy place, Al<br>
+Praise the Lord in heaven above, Al<br>
+Praise him for his mighty deeds. Al<br>
 
-He gives sight to the blind in his mercy
-and he raises the lowly the humble
-It is he who gives shelter to strangers
-Every orphan and widow he defends
+With the sound of trumpet, praise the Lord, Al<br>
+With guitars and flutes, praise the Lord, Al<br>
+With the drum and dancing, praise the Lord, Al<br>
 
-To the just he is gracious and loving
-But the wicked he foils and they stumble
-Yes, the Lord reigns for ever and ever
-He is king over Sion without end
+With the clashing of cymbals, praise the Lord, Al<br>
+Praise to God, the Father and the Son, Al<br>
+To the Spirit for ever glory be, Al<br>
+<br>
+C.24<br>
+All things bright and beautiful<br>
+All creatures great and small<br>
+All things wise and wonderful<br>
+The good God made them all<br>
 
-C.22
-Alleluia, praise the Lord
-Alleluia, alleluia, alleluia, alleluia
+Each little that opens<br>
+Each little that sings<br>
+He made their glowing colours<br>
+He made their tiny wings<br>
 
-Praise the Lord in his holy place, Al
-Praise the Lord in heaven above, Al
-Praise him for his mighty deeds. Al
+The purple headed mountains<br>
+The river running by<br>
+The sunset and the morning<br>
+That brightens up the sky<br>
 
-With the sound of trumpet, praise the Lord, Al
-With guitars and flutes, praise the Lord, Al
-With the drum and dancing, praise the Lord, Al
+The cold wind in the winter<br>
+The pleasant summer sun<br>
+The ripe fruits in the country<br>
+He made them every one<br>
 
-With the clashing of cymbals, praise the Lord, Al
-Praise to God, the Father and the Son, Al
-To the Spirit for ever glory be, Al
+He gave us eyes to see them<br>
+And lips that we might tell<br>
+How great is God almighty<br>
+Who has made all things well<br>
+<br>
+C.26<br>
+God is so good, God is so good<br>
+God is so good, He’s so good to me<br>
 
-C.24
-All things bright and beautiful
-All creatures great and small
-All things wise and wonderful
-The good God made them all
+God cares for me…<br>
 
-Each little that opens
-Each little that sings
-He made their glowing colours
-He made their tiny wings
+God leads me on…<br>
 
-The purple headed mountains
-The river running by
-The sunset and the morning
-That brightens up the sky
+I’ll do his will…<br>
 
-The cold wind in the winter
-The pleasant summer sun
-The ripe fruits in the country
-He made them every one
+Jesus is Lord…<br>
 
-He gave us eyes to see them
-And lips that we might tell
-How great is God almighty
-Who has made all things well
+I’ll trust in Him…<br>
 
-C.26
-God is so good, God is so good
-God is so good, He’s so good to me
-
-God cares for me…
-
-God leads me on…
-
-I’ll do his will…
-
-Jesus is Lord…
-
-I’ll trust in Him…
-
-I’ll sing his praise…
-
-C.28
-Praise him, praise him
-Praise him in the morning
-Praise him in the noontime
-Praise him, praise him
-Praise him when the sun goes down
+I’ll sing his praise…<br>
+<br>
+C.28<br>
+Praise him, praise him<br>
+Praise him in the morning<br>
+Praise him in the noontime<br>
+Praise him, praise him<br>
+Praise him when the sun goes down<br>
 		
-Love Him
+Love Him<br>
 
-Trust Him
+Trust Him<br>
 
-Serve Him
+Serve Him<br>
 
-Jesus
+Jesus<br>
+<br>
+C.39<br>
+I will sing of the mercies of the<br> 
+For ever I will sing, I will sing (2)<br>
+With my mouth will I make known<br>
+Your faithfulness, your faithfulness<br>
+With my mouth will I make known<br>
+Your faithfulness to all generation<br>
+<br>
+C.46<br>
+We shall sing your praise, O Lord<br>
+Now and evermore, now and evermore<br>
+We shall sing your praise<br>
 
-C.39
-I will sing of the mercies of the 
-For ever I will sing, I will sing (2)
-With my mouth will I make known
-Your faithfulness, your faithfulness
-With my mouth will I make known
-Your faithfulness to all generation
+You render justice to the poor; Yes, O Lord<br>
+You give the hungry bread to eat; Yes, O Lord<br>
+And from the chains the captives free<br>
+Yes, O Lord, we shall sing your praise<br>
 
-C.46
-We shall sing your praise, O Lord
-Now and evermore, now and evermore
-We shall sing your praise
+Through you the blind can see the day….<br>
+The humble hearts are filled with hope….<br>
+You give your blessings to the just….<br>
 
-You render justice to the poor; Yes, O Lord
-You give the hungry bread to eat; Yes, O Lord
-And from the chains the captives free
-Yes, O Lord, we shall sing your praise
+Your hand protects the orphan child…<br>
+And  every widow you defend….<br>
+For us your love shall never end….<br>
+<br>
+C.50<br>
+Always I will sing of the glory of the Lord<br>
+Always I will sing of the glory of the Lord, always<br>
 
-Through you the blind can see the day….
-The humble hearts are filled with hope….
-You give your blessings to the just….
+Praise Him, Praise Him, great are his mighty deeds<br>
+Love Him, love Him, He is ever merciful<br>
+Praise Him, praise Him, great are his mighty deeds<br>
+Sing of the glory of the Lord, always<br>
 
-Your hand protects the orphan child…
-And  every widow you defend….
-For us your love shall never end….
+Thank Him, thank Him, wonders He has done<br>
+Love Him, love Him, for he loved us to the end<br>
 
-C.50
-Always I will sing of the glory of the Lord
-Always I will sing of the glory of the Lord, always
+Name Him, name Him, King of the universe<br>
+Love Him, love Him, for He is the God of Love<br>
+<br>
+C.51<br>
+Praise God, praise God<br>
+Let his love remind us of the power of his name<br>
+Praise God, praise God<br>
+All creation sings its song of praise<br>
 
-Praise Him, Praise Him, great are his mighty deeds
-Love Him, love Him, He is ever merciful
-Praise Him, praise Him, great are his mighty deeds
-Sing of the glory of the Lord, always
+I will praise you, God and King<br>
+Each and every day<br>
+My mouth shall never cease to sing<br>
+And I will bless your name for ever<br>
 
-Thank Him, thank Him, wonders He has done
-Love Him, love Him, for he loved us to the end
-
-Name Him, name Him, King of the universe
-Love Him, love Him, for He is the God of Love
-
-C.51
-Praise God, praise God
-Let his love remind us of the power of his name
-Praise God, praise God
-All creation sings its song of praise
-
-I will praise you, God and King
-Each and every day
-My mouth shall never cease to sing
-And I will bless your name for ever
-
-Lord, you’re highly to be praised;
-Your greatness overwhelms
-Age on age will praise your works
-And I will bless your name for ever
+Lord, you’re highly to be praised;<br>
+Your greatness overwhelms<br>
+Age on age will praise your works<br>
+And I will bless your name for ever<br>
 	
-The splendor of your majesty is joyfully retold;
-The fame of your abundant good
-And justice, we will sing for ever
+The splendor of your majesty is joyfully retold;<br>
+The fame of your abundant good<br>
+And justice, we will sing for ever<br>
 
-The Lord is kind and merciful;
-His anger slow to rise
-The Lord is good to all his works;
-His graciousness remains for ever
+The Lord is kind and merciful;<br>
+His anger slow to rise<br>
+The Lord is good to all his works;<br>
+His graciousness remains for ever<br>
 
-Let the faithful bless you, Lord
-And all your works give thanks
-Let them sing to glory of 
-Your kingdom and your might for ever
+Let the faithful bless you, Lord<br>
+And all your works give thanks<br>
+Let them sing to glory of<br>
+Your kingdom and your might for ever<br>
 
-We will share with all the world
-Your splendor and your might
-Your kingdom is a kingdom for
-All ages and will last for ever
+We will share with all the world<br>
+Your splendor and your might<br>
+Your kingdom is a kingdom for<br>
+All ages and will last for ever<br>
 
-The Lord is faithful in his words
-And holy in his works
-He raises up the lowly and
-He lifts the falling up for ever
+The Lord is faithful in his words<br>
+And holy in his works<br>
+He raises up the lowly and<br>
+He lifts the falling up for ever<br>
+<br>
+C.54<br>
+What thanks O Lord, can I render Thee<br>
+For al the gifts Thou showered on me<br>
+Each day I’ll sing of Thy praise and glory<br>
+Alleluia, alleluia<br>
 
-C.54
-What thanks O Lord, can I render Thee
-For al the gifts Thou showered on me
-Each day I’ll sing of Thy praise and glory
-Alleluia, alleluia
+Give thanks to the Lord upon the harp<br>
+With a ten-stringed lute sing Him songs<br>
+O sing Him a song that is new<br>
+Play loudly with all your skill<br>
 
-Give thanks to the Lord upon the harp
-With a ten-stringed lute sing Him songs
-O sing Him a song that is new
-Play loudly with all your skill
+O sing to the glory of his name<br>
+Say to God: “How great are Thy deeds<br>
+Burnt offering to Thee I will bring<br>
+To Thee I will pay my vows<br>
 
-O sing to the glory of his name
-Say to God: “How great are Thy deeds
-Burnt offering to Thee I will bring
-To Thee I will pay my vows
+Give thanks to the Lord for He is good<br>
+Yes, eternal is His love<br>
+Though I walk in the midst of affliction<br>
+He stretches his hand to save<br>
+<br>
+C.55<br>
+Sing my soul to the Lord of the universe<br>
+Lift your heart in song<br>
+Bring out all the love you can<br>
+Praise the Lord, yes, sing an alleluia<br>
+Praise him for his marvelous deeds<br>
+O sing my soul to the Lord<br>
 
-Give thanks to the Lord for He is good
-Yes, eternal is His love
-Though I walk in the midst of affliction
-He stretches his hand to save
+He, the Lord, has made the earth<br>
+Land and sky and ea<br>
+He, the Lord, has given it birth<br>
+Praise him for his mighty deeds! O<br>
+(Sing my soul…)<br>
 
-C.55
-Sing my soul to the Lord of the universe
-Lift your heart in song
-Bring out all the love you can
-Praise the Lord, yes, sing an alleluia
-Praise him for his marvelous deeds
-O sing my soul to the Lord
+He, the Lord, has made the trees<br>
+And the evening breeze;<br>
+Tell his glory to the land<br>
+Give his love to every one! O…<br>
 
-He, the Lord, has made the earth
-Land and sky and ea
-He, the Lord, has given it birth
-Praise him for his mighty deeds! O
-(Sing my soul…)
+He, the Lord, did made in love<br>
+all in one to be!<br>
+He redeemed us by his blood<br>
+Now we form a family! O…<br>
+<br>
+C.56<br>
+Till the end of my days, O Lord<br>
+I will bless your name, sing your praise<br>
+Give you thanks, all my days<br>
 
-He, the Lord, has made the trees
-And the evening breeze;
-Tell his glory to the land
-Give his love to every one! O…
+You have made me little less than a God<br>
+And have lavished my heart with your love<br>
+With dignity and honour you’ve clothed me<br>
+Given me rule over all<br>
 
-He, the Lord, did made in love
-all in one to be!
-He redeemed us by his blood
-Now we form a family! O….	
+You have blessed me with good things and plenty<br>
+And surrounded my table with friends<br>
+Their love and their laughter enrich me<br>
+Together we sing your praise<br>
 
-C.56
-Till the end of my days, O Lord
-I will bless your name, sing your praise
-Give you thanks, all my days
+How great is your love, O Father<br>
+That you sent us your Saviour Son<br>
+His death and his rising will heal us<br>
+And draw us all unto you<br>
+<br>
+C.58<br>
+Dawn it is breaking<br>
+Dawn it is breaking, the night, it has gone<br>
+Day is beginning, the air’s filled with song<br>
+All around there is music and beauty and peace<br>
+Thank you, O Lord, for sharing these things with me<br>
 
-You have made me little less than a God
-And have lavished my heart with your love
-With dignity and honour you’ve clothed me
-Given me rule over all
+Walking thro’ fields hear the sound of the wind<br>
+Carried along by the song that it sings<br>
 
-You have blessed me with good things and plenty
-And surrounded my table with friends
-Their love and their laughter enrich me
-Together we sing your praise
+Sit by a stream on a warm afternoon<br>
+Flowing along with its own special tune<br>
 
-How great is your love, O Father
-That you sent us your Saviour Son
-His death and his rising will heal us
-And draw us all unto you
+Stand on a beach, see the sea meet the sky<br>
+Waves breaking gently while white seagulls cry<br>
 
-C.58
-Dawn it is breaking
-Dawn it is breaking, the night, it has gone
-Day is beginning, the air’s filled with song
-All around there is music and beauty and peace
-Thank you, O Lord, for sharing these things with me
+Sun, it is setting, the night, it is nigh<br>
+Day, it is ending the moon’s in the sky<br>
+<br>
+C.59<br>
+Heav’n and earth proclaim God’s glory;<br>
+Skies and seas show forth his handiworks<br>
+Day and night take up the story:<br>
+Great and glorious God’s almighty deeds<br>
 
-Walking thro’ fields hear the sound of the wind
-Carried along by the song that it sings
-
-Sit by a stream on a warm afternoon
-Flowing along with its own special tune
-
-Stand on a beach, see the sea meet the sky
-Waves breaking gently while white seagulls cry
-
-Sun, it is setting, the night, it is nigh
-Day, it is ending the moon’s in the sky
-
-C.59
-Heav’n and earth proclaim God’s glory;
-Skies and seas show forth his handiworks
-Day and night take up the story:
-Great and glorious God’s almighty deeds
-
-Heavens above, O bless, the Lord
-Hills and mountains, bless the Lord!
-You sun, you moon, O bless, bless the Lord
-Stars of heaven, bless the Lord
+Heavens above, O bless, the Lord<br>
+Hills and mountains, bless the Lord!<br>
+You sun, you moon, O bless, bless the Lord<br>
+Stars of heaven, bless the Lord<br>
 		
-Waters and seas… Plants and earth, now….
-Wild beast and tame…. All you creatures…
+Waters and seas… Plants and earth, now….<br>
+Wild beast and tame…. All you creatures…<br>
 
-Humble of hearts…. All you just, now….
-Fountains and springs…. Night and day, now….
+Humble of hearts…. All you just, now….<br>
+Fountains and springs…. Night and day, now….<br>
 
-Sing now to God…. God, our Father….
-For Christ his Son… Spirit Holy….	
+Sing now to God…. God, our Father….<br>
+For Christ his Son… Spirit Holy….<br>
+<br>
+C.60<br>
+This world you have made is a beautiful place<br>
+It tells the power of your love<br>
+We rejoice in the beauty of your world<br>
+From the seas to the heavens above<br>
 
-C.60
-This world you have made is a beautiful place
-It tells the power of your love
-We rejoice in the beauty of your world
-From the seas to the heavens above
+The morning whispers of purity<br>
+The evening of your peace<br>
+The thunder booms your exuberance<br>
+In the awesome power you release<br>
 
-The morning whispers of purity
-The evening of your peace
-The thunder booms your exuberance
-In the awesome power you release
+The tenderness of a new-born child<br>
+The gentleness of the rain<br>
+Simplicity in a single cell<br>
+And complexity in a brain<br>
 
-The tenderness of a new-born child
-The gentleness of the rain
-Simplicity in a single cell
-And complexity in a brain
+Your stillness rests in a silent pool<br>
+Infinity drifts in space<br>
+Your grandeur straddles the mountain tops<br>
+And we see your face in each face<br>
+<br>
+C.61<br>
+Worship, Glory, praise and honour<br>
+Worship and honour to God<br>
+We, with many generations<br>
+All join to honour your name<br>
 
-Your stillness rests in a silent pool
-Infinity drifts in space
-Your grandeur straddles the mountain tops
-And we see your face in each face
+O praise him, all the earth; O praise him, sun and moon<br>
+O praise him, shining stars, O bless his glorious name<br>
+O praise him, Israel, people of God, give praise<br>
+You Sons of Israel, Now bless your God<br>
 
-C.61
-Worship, Glory, praise and honour
-Worship and honour to God
-We, with many generations
-All join to honour your name
+Mountains and hills, give praise; Plants of the earth give praise<br>
+Darkness and light, give praise; O bless his glorious name<br>
+Fish of the sea, give praise; Clouds of the sky, give praise<br>
+Rivers and seas, give praise; Wild beasts and tame, give praise<br>
 
-O praise him, all the earth; O praise him, sun and moon
-O praise him, shining stars, O bless his glorious name
-O praise him, Israel, people of God, give praise
-You Sons of Israel, Now bless your God
+Birds of the sky, give praise; wild beasts and tame, give praise<br>
+Works of the Lord, give praise: O bless his glorious name<br>
+Angels of God, give praise; O bless his glorious name<br>
+Children of God, give praise; Now bless your God<br>
 
-Mountains and hills, give praise; Plants of the earth give praise
-Darkness and light, give praise; O bless his glorious name
-Fish of the sea, give praise; Clouds of the sky, give praise
-Rivers and seas, give praise; Wild beasts and tame, give praise
+To God the Father praise, To Christ his Son, give prais<br>
+And Spirit holy, praise, We bless his glorious name<br>
+May you be blest, O Lord, All glory be to you<br>
+Glory to God most high, We bless our God<br>
+<br>
+C.63<br>
+Thank you O Lord your love is boundless<br>
+Thank you your presence is our peace<br>
+Thank you O Lord for so much goodness<br>
+Thank you your mercies never cease<br>
 
-Birds of the sky, give praise; wild beasts and tame, give praise
-Works of the Lord, give praise: O bless his glorious name
-Angels of God, give praise; O bless his glorious name
-Children of God, give praise; Now bless your God
+Thank you, we heard your word this morning<br>
+Thank you, we ate the bread of life<br>
+Thank you for sending us your Spirit<br>
+Thank you for giving us your peace<br>
 
-To God the Father praise, To Christ his Son, give prais
-And Spirit holy, praise, We bless his glorious name
-May you be blest, O Lord, All glory be to you
-Glory to God most high, We bless our God
-		
-C.63
-Thank you O Lord your love is boundless
-Thank you your presence is our peace
-Thank you O Lord for so much goodness
-Thank you your mercies never cease
+Thank you, you free the broken hearted<br>
+Thank you for calming all our fears<br>
+Thank you for bringing us forgiveness<br>
+Thank you for binding up our wounds<br>
 
-Thank you, we heard your word this morning
-Thank you, we ate the bread of life
-Thank you for sending us your Spirit
-Thank you for giving us your peace
+Thank you for giving us this moment<br>
+Thank you for every joy we share<br>
+Thank you for all our friends and neighbours<br>
+Thank you for those who love and care<br>
+<br>
+C.66<br>
+Be exalted, O God<br>
 
-Thank you, you free the broken hearted
-Thank you for calming all our fears
-Thank you for bringing us forgiveness
-Thank you for binding up our wounds
+I will give thanks to you, O Lord, among the people<br>
+I will sing praises to you among the nations<br>
+For your steadfast love is great, is great to the heavens<br>
+And our faithfulness, your faithfulness to the clouds<br>
+Be exalted, O God, above the heavens<br>
+Let your glory be over all the earth (2)<br>
 
-Thank you for giving us this moment
-Thank you for every joy we share
-Thank you for all our friends and neighbours
-Thank you for those who love and care
+It is good to thank you, Lord and to praise your name with music<br>
+To proclaim your love and mercy in the morning<br>
+For your deeds have made me glad, at your works I shout in triumph<br>
+Yes, how wonderful and how marvelous are your designs<br>
 
-C.66
-Be exalted, O God
+All your creatures thank you, Lord, and your friends repeat their blessing<br>
+Age to age proclaim your splendour and your glory<br>
+You are kind to us, O God, full over tender love and mercy<br>
+And your graciousness and your constancy have no compare<br>
+<br>
+C.69<br>
+In His time, In His time<br>
+He makes all things beautiful in His time<br>
+Lord, please show me every day<br>
+As you’re teaching me Your way<br>
+That you do just what You say in Your time<br>
 
-I will give thanks to you, O Lord, among the people
-I will sing praises to you among the nations
-For your steadfast love is great, is great to the heavens
-And our faithfulness, your faithfulness to the clouds
-Be exalted, O God, above the heavens
-Let your glory be over all the earth (2)
+In Your time, In Your time<br>
+You make all things beautiful in Your time<br>
+Lord, my life to You I bring<br>
+With its winter and its spring<br>
+May I fathom everything in Your time<br>
 
-It is good to thank you, Lord and to praise your name with music
-To proclaim your love and mercy in the morning
-For your deeds have made me glad, at your works I shout in triumph
-Yes, how wonderful and how marvelous are your designs
+There’s a time, there’s a time<br>
+Both for sowing and for reaping there’s a time<br>
+Time for losing time for gain<br>
+Time for joy and time for pain<br>
+Every purpose under heaven has a time<br>
 
-All your creatures thank you, Lord, and your friends repeat their blessing
-Age to age proclaim your splendour and your glory
-You are kind to us, O God, full over tender love and mercy
-And your graciousness and your constancy have no compare 
+There are times, there are days<br>
+Weeks and months we cannot understand God’s ways<br>
+If for years we fail to scan<br>
+What is his eternal plan<br>
+We’ll remember that He can, all the time<br>
+<br>
+(C).C73v<br>
+Thy loving kindness is better than life (2)<br>
+My lips shall praise Thee, thus will I bless Thee<br>
+I will lift up my hands unto Thy name (2)<br>
 
-C.69
-In His time, In His time
-He makes all things beautiful in His time
-Lord, please show me every day
-As you’re teaching me Your way
-That you do just what You say in Your time
+The skies are telling the glory of God….<br>
 
-In Your time, In Your time
-You make all things beautiful in Your time
-Lord, my life to You I bring
-With its winter and its spring
-May I fathom everything in Your time
+Thy word is spoken, Thy message is heard…..<br>
 
-There’s a time, there’s a time
-Both for sowing and for reaping there’s a time
-Time for losing time for gain
-Time for joy and time for pain
-Every purpose under heaven has a time
+I will recount, Lord, Thy wonderful deeds….<br>
 
-There are times, there are days
-Weeks and months we cannot understand God’s ways
-If for years we fail to scan
-What is his eternal plan
-We’ll remember that He can, all the time
+The Lord brings justice, He raises the poor….<br>
 
-(C).C73
-Thy loving kindness is better than life (2)
-My lips shall praise Thee, thus will I bless Thee
-I will lift up my hands unto Thy name (2)
+The Lord is goodness, His wisdom is great…<br>
 
-The skies are telling the glory of God….
+Thou art forgiving, Thy mercy is sure…<br>
 
-Thy word is spoken, Thy message is heard…..
+Happy the people, who call on His name…<br>
+<br>
+C.77<br>
+I will sing unto the Lord as long as I live<br>
+I will sing praise to my God while I have my being<br>
+My meditation of Him shall be sweet<br>
+I will be glad, I will glad in the Lord<br>
+Blest thou the Lord, O my soul, praise ye the Lord (4)<br>
 
-I will recount, Lord, Thy wonderful deeds….
+I’ll give thanks unto the Lord for all his deeds<br>
+Seen everywhere in our land, remembered for ever<br>
+Search for the Lord, never cease, worship Him<br>
+With all your Heart, with all strength, worship him<br>
+<br>
+C.78<br>
+I will praise you O Lord My God, with all my heart(2)<br>
+And I will glorify your name for evermore<br>
+With all my heart<br>
 
-The Lord brings justice, He raises the poor….
+For great is your mercy towards me<br>
+And you have delivered my soul from eternal death<br>
+There is none like you, O Lord, upon the earth<br>
+In heav’n above<br>
 
-The Lord is goodness, His wisdom is great…
+For true to your promise you are<br>
+And patient with all the humble hearts<br>
+Who trust in you, There is none…<br>
 
-Thou art forgiving, Thy mercy is sure…
-
-Happy the people, who call on His name…
-
-C.77
-I will sing unto the Lord as long as I live
-I will sing praise to my God while I have my being
-My meditation of Him shall be sweet
-I will be glad, I will glad in the Lord
-Blest thou the Lord, O my soul, praise ye the Lord (4)
-
-I’ll give thanks unto the Lord for all his deeds
-Seen everywhere in our land, remembered for ever
-Search for the Lord, never cease, worship Him
-With all your Heart, with all strength, worship him
-
-C.78
-I will praise you O Lord My God, with all my heart(2)
-And I will glorify your name for evermore
-With all my heart
-
-For great is your mercy towards me
-And you have delivered my soul from eternal death
-There is none like you, O Lord, upon the earth
-In heav’n above
-
-For true to your promise you are
-And patient with all the humble hearts
-Who trust in you, There is none…
-
-For full of compassion you are
-So gracious, so ready to forgive the sinful soul
+For full of compassion you are<br>
+So gracious, so ready to forgive the sinful soul<br>
 There is none…
