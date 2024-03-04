@@ -29,8 +29,8 @@ Maranatha! Come, O Christ the Lord<br>
 I am the Root of Jesse and David’s Son<br>
 The radiant Star of morning and God’s own Light<br>
     
-The Spirit and the Bride say `Come’<br>
-Let those who hear their voices say `Come’<br>
+The Spirit and the Bride say 'Come' <br>
+Let those who hear their voices say 'Come' <br>
 
 Those who have thirst, let them come and those who have desire<br>
 Let them drink the waters of everlasting life<br>
