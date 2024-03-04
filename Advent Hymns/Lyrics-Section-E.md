@@ -1,4 +1,4 @@
-Bestir thy power and come Lord<br>
+Bestir thy power and come Lord<br> 
 To save our sin-laden race<br>
 Reveal thy bounty and goodness<br>
 Diffuse thy splendour and grace<br>
