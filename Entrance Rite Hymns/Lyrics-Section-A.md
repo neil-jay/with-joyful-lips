@@ -8,7 +8,7 @@ Within yours gates, O Jerusalem.<br>
 Jerusalem, most beautiful  city,<br>
 So strongly compact, alleluia.<br>
 On you converge all the tribes of the Lord.<br>
- 
+
 May His peace reign in your walls,<br>
 Happiness and love in all your homes, alleluia.<br>
 For you are the house of the Lord, our God.<br>
@@ -25,32 +25,32 @@ And my courage will/never be spent<br>
 
 Fill my heart with your/truth and your light<br> 
 As I enter with/joy in your sight<br>
- 
+
 Holy praises to/God I will sing<br>
 I will trust and will/hope in my King<br>
- 
+
 Glory be to the / Father and Son<br>
 And the Spirit while / ages are run<br>
 <br>
 A.7<br>
 All the Earth proclaim the Lord<br>
 Sing your praise to God<br>
- 
+
 Serve you the Lord, heart filled with gladness<br>
 Come into his presence, singing for joy<br>
- 
+
 Know that the Lord is our Creator<br>
 Yes, he is our Father: we are his children<br>
 
 We are the sheep of his green pasture<br>
 For we are his people:  he is our God<br>
- 
+
 Enter his gates, bringing thanksgiving<br>
 O enter his courts while singing his praise<br>
- 
+
 Our Lord is good, his love enduring<br>
 His word is abiding now with us all<br>
- 
+
 Honour and praise be to the Father<br>
 The Son and the Spirit, world without end<br>
 <br>
@@ -60,22 +60,22 @@ All peoples of the universe<br>
 Sing to the Lord with cheerful voice<br>
 Him loudly praise and gladly serve<br>
 Into his presence, come with songs<br>
- 
+
 Know that the Lord is God indeed<br>
 He made us, we belong to Him<br>
 We all on earth his people are<br>
 The flock he tends his sheep we are<br>
- 
+
 O enter then his gates with praise<br>
 These courts of his approach with joy<br>
 Give thanks to him who reigns on high<br>
 And bless his ever holy name<br>
- 
+
 The Lord is gracious, he is good<br>
 Eternal is his love for us<br>
 His mercy lasts from age to age<br>
 His faithfulness has never failed<br>
- 
+
 To God the Father glory be<br>
 To Jesus Christ, his Son, our Lord<br>
 And to the Spirit, source of love<br>
@@ -106,70 +106,70 @@ Give glory to the God….of peace and love<br>
 <br>
 A.26<br>
 Come, my (Brothers)<br>
- 
+
 Come, my friends, let’s praise the Lord, Alleluia<br> 
 Praise the Lord, for his God, Alleluia<br>
- 
+
 Come to him to give him thanks, alleluia<br>
 Hail the Lord with joyful songs alleluia<br>
- 
+
 For a mighty God is he alleluia<br>
 He is king of all the world, alleluia<br>
- 
+
 In his hands are valleys deep, alleluia<br>
 In his hands are mountain peaks, alleluia<br>
- 
+
 In his hands are all seas, alleluia<br>
 And the land which he has made, alleluia<br>
- 
+
 Come, my friends, let’s praise the Lord, alleluia<br>
 He is God and we are his, alleluia<br>
- 
+
 Praise the Father, praise the Son, alleluia<br>
 Praise the Holy Spirit too, alleluia<br>
 <br>
 A.27<br>
 Your Word Stands Firm<br>
- 
+
 Your word stands firm forever<br>
 Your truth, O Lord, is everlasting<br>
 Your law: my joy, my true delight<br>
 Alleluia, alleluia, alleluia, alleluia<br>
- 
+
 Your word: a lamp to guide my steps<br>
 A light to shine on paths of darkness<br>
 I place my trust in your commands<br>
- 
+
 My words are Sprit, says the Lord<br>
 My words are life for all believers<br>
 My teaching keep and never die<br>
- 
+
 Whoever listens to my words<br>
 And firmly trusts in Him who sent me<br>
 Eternal life he shall enjoy<br>
- 
+
 The one who loves me, keeps my word<br>
 My Father then, in turn, will love him<br>
 We’ll come and make our home with him<br>
- 
+
 Be you all faithful to my word<br>
 Become thus truly my disciples<br>
 And know the truth that makes you free<br>
 <br>
 A.28<br>
 This is the Day the Lord has made<br>
- 
+
 This is the day that the Lord has made<br>
 Let us be glad and rejoice in it<br>
 Let us be glad and rejoice<br>
 This is the day that the Lord has made<br>
- 
+
 Alleluia, alleluia, alleluia is our song of joy<br>
 Sing the song we will sing forever;<br>
 Alleluia, alleluia<br>
- 
+
 This is the day when the Lord arose<br>
- 
+
 This is the day when we rise with him<br>
 <br>
 A.32<br>
@@ -177,22 +177,22 @@ I rejoiced when I heard the people saying:<br>
 Let’s go to the temple of the Lord<br>
 And now at least our feet are standing<br>
 Within your gates, O Jerusalem<br>
- 
+
 Jerusalem, O fairest city<br>
 So strongly built as one united whole<br>
 It is there that the tribes now gather<br>
 All the tribes to worship the Lord<br>
- 
+
 For the peace of Jerusalem pray:<br>
 Prosperity to all your dwelling places<br>
 Let there be peace everywhere within your ramparts<br>
 Let there be safety within your towers<br>
- 
+
 For love of my people and my friends<br>
 This is my prayer: may lasting peace be yours<br>
 For the sake of the house of the Lord<br>
 I shall plead and pray for your good<br>
- 
+
 To the Father almighty sing your praise<br>
 And to the Son, Redeemer of the world<br>
 To the Spirit who dwells in our hearts<br>
@@ -200,22 +200,22 @@ Both now and forever, Amen<br>
 <br>
 A.38<br>
 Word of God<br>
- 
+
 Word of God, come down on earth, alleluia<br>
 Touch our hearts and bring to birth, alleluia<br>
 Faith and hope and lasting love, alleluia<br>
 Word of God, come down on earth<br>
- 
+
 Speak to us, eternal Word, alleluia<br>
 You who brought all things to like, alleluia<br> 
 Word that came from heav’n to die, alleluia<br>
 Speak to us, eternal Word<br>
- 
+
 Speak and heal our mortal ills, alleluia<br>
 Word that caused blind eyes to see, alleluia<br>
 Deaf we are, our healer be, alleluia<br>
 Speak and heal our mortal, alleluia<br>
- 
+
 Word made flesh, we long for you, alleluia<br>
 Word that speaks the Father’s love, alleluia<br>
 Word that sends the Spirit blest, alleluia<br>
@@ -227,16 +227,16 @@ Open the gates before him, lift up your voices<br>
 
 Who is the King of glory? How shall we call him?<br>
 He is Emmanuel, the promised of ages<br>
- 
+
 In all of Galilee, in city or village<br>
 He goes among his people, curing their illness<br>
- 
+
 Sing then of David’s Son, our Saviour and brother<br>
 In all of Galilee, was never another<br>
- 
+
 He gave his life for us, the pledge of salvation<br>
 He took upon himself the sins of the nation<br>
- 
+
 He conquered sin and death : he truly has risen<br>
 And he will share with us his heavenly vision<br>
 <br>
@@ -245,12 +245,12 @@ Glory to God on high<br>
 Peace to all good wills<br>
 Honour and praise Him all of our days<br>
 And love Him in all mankind<br>
- 
+
 Sing out praise to God<br>
 For his wondrous deeds<br>
 Know for sure that in his love<br>
 He answers all our needs<br>
- 
+
 Praise the Lord in prayer<br>
 Praise the Lord in song<br>
 Praise the Lord all we do<br>
@@ -263,11 +263,11 @@ Rejoice in Him and be glad<br>
 My soul long for the Lord<br>
 Rise O Lord to our need<br>
 Make your power known<br>
-	
+
 With the Lord  is mercy<br>
 And fullness of Redemption<br>
 Praise be his name<br>
-	
+
 Show O Lord your way<br>
 Lead us to your home<br>
 Light the way for us<br>
@@ -280,7 +280,7 @@ A.50<br>
 The Lord our God is the Lord of Lords<br>
 Sov’reign of all is he<br>
 He is the great and mighty<br>
-And  the Holy one<br>
+And the Holy one<br>
 The Lord our God is He (2)<br>
 
 He cares for no ones status<br>
@@ -320,7 +320,7 @@ A.53<br>
 In the Lord is my Hope<br>
 In the Lord is my Shield and my strength<br>
 He’s my fortress : I stand firm<br>
-	
+
 I’ve no fear of the night and its shadow<br>
 I’ve no fear of the plague that prowls around<br>
 For your light shines, O Lord, in the darkness<br>
@@ -366,7 +366,7 @@ Joyfully come to proclaim the Lord<br>
 
 Know that He, the Lord, is God and we His people<br>
 Enter now with courts with songs of thankful praise<br>
-	
+
 Quench your thirst<br>
 Drink from the springs of living water<br>
 Come, be filled, sit at the table of his word<br>
@@ -379,13 +379,13 @@ Stay with him until we learn his way of love<br>
 <br>
 A.61<br>
 Alleluia, alleluia, alleluia (2)<br>
- 
+
 The Lord is ever faithful and loving in his deeds<br>
 O happy those who hear his word with loving care<br>
 
 The word of God is Truth, it gives eternal life<br>
 O  harden not your hearts, but listen to his voice<br>
- 
+
 Accept the word of God, for what it really is<br> 
 The word of God almighty, and not our human words<br>
 <br>
@@ -417,7 +417,7 @@ He has made me glad (2)<br>
 Jesus has made me glad<br>
 Enter his courts with thanks giving in your hearts<br>
 For he has made me glad<br>
- 
+
 Sing to the Lord and make music unto him<br>
 Sing to the Lord with joy<br>
 
@@ -454,7 +454,7 @@ Bring forth fruit patiently<br>
 If anyone loves me<br>
 He will keep my word<br>
 And we will come to him<br>
-	  
+  
 Hardened not your heart<br>
 Bend to his will<br>
 Listen now to his voice<br>
@@ -464,15 +464,15 @@ Out of our darkness O Jesus Christ<br>
 We call to you before day starts<br>
 Let your light shine on us today<br>
 Remain with us till shadows all<br>
-	
+
 O rising sun resplendence of the Father<br>
 O Jesus Christ we sing to you<br>
 The way of life that leads us to the Kingdom<br>
 With one heart we sing your praise<br>
-	    
+    
 O Paschal Lamb, Good Shepherd of your people…<br>
 Our saving rock, the fountain of all graces…<br>
-	  
+  
 O Son of God, abode of highest Glory…<br>
 Royal Spouse… Redeemer of the nations…<br>
 <br>
@@ -481,17 +481,17 @@ Be glad, O People of the earth<br>
 Lift up your heart with song and dance<br>
 For I am with you, yes, within you, for ever<br>
 You are the heart of my heart<br>
-	
+
 I will never forget you, O my people<br>
 On the day of anguish I will answer you<br>
 As you join in celebration<br>
 My joy will move among you<br>
-	    
+    
 You will find a land to be your home<br>
 Where sheep and cattle may freely roam<br>
 Mountains from which springs<br>
 Shall flow with living water<br>
-	  
+  
 I will make your faith burn brightly<br>
 So that others may find life’s fullness<br>
 Freedom for all captives<br>
@@ -582,7 +582,7 @@ He’s in the might of whirlwind, in the roaring of the seas<br>
 
 He’s in the laughter of children, in the patter of the rain<br>
 Hear him in cries of the suffering, in their moaning and their pain<br>
- 
+
 He’s in the noise of the city, in the twitter of the bird<br>
 And in the night time the stillness helps you listen to his word<br>
 
@@ -966,7 +966,7 @@ A.122<br>
 
 Come and go with me to my Father’s house<br>
 ...where there’s joy, joy, joy.<br>
-	
+
 Jesus is the way of my Father’s house…<br>
 
 Jesus is the light in my Father’s house…<br>
@@ -1000,7 +1000,7 @@ Lift up your hands<br>
 
 Lift up your hands and worship the Lord, (3)<br>
 …. Worship his holy name<br>
-		
+
 Humble yourself and worship the Lord….<br>
 
 Call on His name and worship the Lord….<br>
@@ -1032,7 +1032,7 @@ Jubilate, Jubilate, Jubilate Deo!<br>
 
 He’s our maker, we his creatures<br>
 We’re his sheep and He’s our shephered<br>
-		
+
 To the Father, Son and Spirit<br>
 Now and evermore give glory<br>
 <br>
