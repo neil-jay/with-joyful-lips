@@ -1,7 +1,7 @@
 A1.<br>
 Joy was in my heart, alleluia, when I heard them say:<br>
 “Let us go to God’s House.”<br>
- 
+
 And now our feet are standing, alleluia.<br>
 Within yours gates, O Jerusalem.<br>
 
