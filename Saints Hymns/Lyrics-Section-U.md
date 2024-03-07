@@ -1,9 +1,9 @@
 # U.5 <span> TRUST IN THE LORD<br>
-### **Ch:** <br>
-**Trust in the Lord, O you saints of God**<br>
-**And bless His name (2).**<br>
-**Happy are they who trust in Him**<br>
-**And bless His name (2).**<br>
+### ***Chorus:*** <br>
+Trust in the Lord, O you saints of God<br>
+And bless His name (2).<br>
+Happy are they who trust in Him<br>
+And bless His name (2).<br>
 
 Exult, you just, in the Lord our God,<br>
 Praise from the upright is fitting.<br>
