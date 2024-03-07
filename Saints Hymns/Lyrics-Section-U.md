@@ -1,5 +1,5 @@
 # U.5 <span> TRUST IN THE LORD<br>
-**Ch:** <br>
+## **Ch:** <br>
 **Trust in the Lord, O you saints of God**<br>
 **And bless His name (2).**<br>
 **Happy are they who trust in Him**<br>
