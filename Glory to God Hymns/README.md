@@ -1,4 +1,4 @@
-This is Section - A<br>
+This is Section - VG<br>
 This section consists of lyrics for Glory to God Hymns.<br><br>
 Steps completed:<br>
 - First phase: Unformatting the text<br>
