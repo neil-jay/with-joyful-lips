@@ -1,5 +1,5 @@
 # X.2 <span> LONG LIVE THE LORD<br>
-ANt.:<br>
+Ant.:<br>
 **Long live the Lord, for he is my Saviour!**<br>
 
 For he is my light, for he is my Saviour!<br>
@@ -122,7 +122,7 @@ Christ to the world with joy I must bring.<br>
 Christ is my Lord, (and) my God, (and) my all.<br>
 Christ to the world with joy I must bring.<br>
 <br>
-#X.12 <span> SON OF God <br>
+# X.12 <span> SON OF God <br>
 
 Son of God, you called us to your table,<br>
 Son of God, in you we are made one.<br>
@@ -139,8 +139,8 @@ Son of God, you make our burden light.<br>
 Son of God, your Spirit send us now<br>
 Son of God, your love on us bestow.<br>
 <br>
-# X.14 <span> HUNGRY, THIRSTY, LORD, WE CAME<br>
-### *** Chorus: *** <br>
+# X.14 <span> HUNGRY, THIRSTY, LORD, WE CAME <br>
+### ***Chorus:*** <br>
 **Hungry, thirsty, Lord, we came,**<br>
 **But joyous now we leave,**<br>
 **Nourished by the bread of life,**<br>
@@ -172,7 +172,7 @@ mount up and overflow,<br>
 Overflow, overflow, overflow, overflow to all.<br>
 <br>
 # X.17 <span> WITH A SONG IN OUR HEARTS<br>
-### *** Chorus: *** <br>
+### ***Chorus:*** <br>
 **With a song in our hearts**<br>
 **we shall go on our way**<br>
 **To bring God's love to every one**<br>
@@ -328,7 +328,7 @@ right where we are.<br>
 Thank you, Lord, for giving us us (3)<br>
 right where we are.<br>
 <br>
-#X.26 <span> THANK YOU<br>
+# X.26 <span> THANK YOU<br>
 ### ***Chorus:***<br>
 **Thank you, Lord, for all you've done,**<br>
 **Things both great and small,**<br>
