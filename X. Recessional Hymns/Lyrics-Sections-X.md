@@ -19,8 +19,9 @@ To the world we all must go,<br>
 Gathered in your charity,<br>
 To the world we go.<br>
 <br>
+
 # X.14 <span> HUNGRY, THIRSTY, LORD, WE CAME<br>
-### ***Chorus: *** <br>
+### *** Chorus: *** <br>
 **Hungry, thirsty, Lord, we came,**<br>
 **But joyous now we leave,**<br>
 **Nourished by the bread of life,**<br>
