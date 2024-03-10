@@ -1,4 +1,4 @@
-#X.3 <span> TO THE WORLD WE GO<br> 
+# X.3 <span> TO THE WORLD WE GO<br> 
 Lightened by the word we’ve heard,<br>
 To the world we all must go,<br>
 Nourished by the bread of life,<br>
@@ -20,7 +20,7 @@ Gathered in your charity,<br>
 To the world we go.<br>
 <br>
 # X.14 <span> HUNGRY, THIRSTY, LORD, WE CAME<br>
-### ***Chorus: ***<br>
+### ***Chorus: *** <br>
 **Hungry, thirsty, Lord, we came,**<br>
 **But joyous now we leave,**<br>
 **Nourished by the bread of life,**<br>
