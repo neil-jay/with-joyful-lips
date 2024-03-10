@@ -11,9 +11,7 @@ Properly formatted to copy and paste.<br>
 Well aligned and numbers are removed.<br><br>
 
 * What's not included?<br>
-Grammatical errors<br>
-Punctuation Mark errors<br>
-Nothing has been redacted<br><br>
+No text has been redacted<br><br>
 
 Each folder containts hymn lyrics<br>
 For full Folder details, read the READMe file<br> 
