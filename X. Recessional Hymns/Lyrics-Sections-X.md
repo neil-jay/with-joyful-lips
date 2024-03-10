@@ -1,127 +1,127 @@
-X.3    
-Lightened by the word we’ve heard
-To the world we all must go
-Nourished by the bread of life
-To the world we go
-Altogether in one love and faith
-Seeking ever to be true
-You will guide us on the path O Lord
-Of eternal peace
+X.3<br> 
+Lightened by the word we’ve heard<br>
+To the world we all must go<br>
+Nourished by the bread of life<br>
+To the world we go<br>
+Altogether in one love and faith<br>
+Seeking ever to be true<br>
+You will guide us on the path O Lord<br>
+Of eternal peace<br>
 
-With our joys and with our cares
-To the world we all must go
-Weighed by toil but raised by hope
-To the world we go
+With our joys and with our cares<br>
+To the world we all must go<br>
+Weighed by toil but raised by hope<br>
+To the world we go<br>
 
-Joined in peace and unity
-To the world we all must go
-Gathered in your charity
-To the world we go
+Joined in peace and unity<br>
+To the world we all must go<br>
+Gathered in your charity<br>
+To the world we go<br>
+<br>
+X.14<br>	
+Hungry, thirsty, Lord, we came<br>
+But joyous now we leave<br>
+Nourished by the bread of life<br>
+Renewed and ready to serve<br>
 
-X.14	
-Hungry, thirsty, Lord, we came
-But joyous now we leave
-Nourished by the bread of life
-Renewed and ready to serve
+Together we have shared this meal<br>
+The bread of unity<br>
+Help us Lord, to build a world<br>
+Where love and charity abide<br>
 
-Together we have shared this meal
-The bread of unity
-Help us Lord, to build a world
-Where love and charity abide
+You told us Lord to be the light<br>
+That shines for all to see<br>
+Send your Spirit in our hearts<br>
+To keep the fire of love ablaze<br>
 
-You told us Lord to be the light
-That shines for all to see
-Send your Spirit in our hearts
-To keep the fire of love ablaze
+You called us, Lord, to be the salt<br>
+The heaven in the dough<br>
+Help your witnesses to stand<br>
+And speak the words of truth and life<br>
+<br>
+X.19<br>
+Go the mass is ended, children of the Lord<br>
+Take his word to others as you’ve heard it spoken to you<br>
+Go the Mass is ended, go and tell the world<br>
+The Lord is good, the Lord is kind<br>
+And he loves every one<br>
 
-You called us, Lord, to be the salt
-The heaven in the dough
-Help your witnesses to stand
-And speak the words of truth and life
+Go the Mass is ended, take his love to all<br>
+Gladden all who meet you<br>
+Fill their hearts with hope and courage<br>
+Go the Mass is ended fill the world with love<br>
+And give to all what you’ve received<br>
+The peace and joy of Christ<br>
 
-X.19
-Go the mass is ended, children of the Lord
-Take his word to others as you’ve heard it spoken to you
-Go the Mass is ended, go and tell the world
-The Lord is good, the Lord is kind
-And he loves every one
+Go, the Mass is ended, strengthened in the Lord<br>
+Lighten every burden<br>
+Spread the joy Christ around you<br>
+Go the Mass is ended, take his peace to all<br>
+This day is yours to change the world<br>
+To make God known and loved<br>
+<br>
+X.23<br>	
+Put on the armour of Jesus Christ<br>
+Build up your strength in the Lord<br>
+Gird yourself with his truth, carry faith as a shield<br>
+The Good news a sword in your hand<br>
 
-Go the Mass is ended, take his love to all
-Gladden all who meet you
-Fill their hearts with hope and courage
-Go the Mass is ended fill the world with love
-And give to all what you’ve received
-The peace and joy of Christ
+Let your lions be girt and your lamps alight<br>
+Waiting for the day when the Master comes<br>
+May he find your watching when he returns<br>
+He’ll come like a thief in the night<br>
 
-Go, the Mass is ended, strengthened in the Lord
-Lighten every burden
-Spread the joy Christ around you
-Go the Mass is ended, take his peace to all
-This day is yours to change the world
-To make God known and loved
+If we die with him, we shall live with him<br>
+If we now endure, we shall reign with him<br>
+If we are not faithful, he’ll still keep faith<br>
+For he can’t be false to himself<br>
+<br>
+X.27<br>
+I’ll sing your glory, my God<br>
+I’ll sing your glory evermore(2)<br>
 
-X.23	
-Put on the armour of Jesus Christ
-Build up your strength in the Lord
-Gird yourself with his truth, carry faith as a shield
-The Good news a sword in your hand
-
-Let your lions be girt and your lamps alight
-Waiting for the day when the Master comes
-May he find your watching when he returns
-He’ll come like a thief in the night
-
-If we die with him, we shall live with him
-If we now endure, we shall reign with him
-If we are not faithful, he’ll still keep faith
-For he can’t be false to himself
-
-X.27
-I’ll sing your glory, my God
-I’ll sing your glory evermore(2)
-
-I’ll sing your glory, glory, glory evermore (2)
+I’ll sing your glory, glory, glory evermore (2)<br>
 	
-I’ll spread your message, spread your message everywhere (2)
+I’ll spread your message, spread your message everywhere (2)<br>
 
-I’ll serve your people, serve your people lovingly (2)
+I’ll serve your people, serve your people lovingly (2)<br>
+<br>
+X.28<br>
+Ring out your joy, give glory to God<br>
+Lift up your hearts and sing<br>
+Let all creation tell of his name<br>
+Praise Him for evermore<br>
+
+Blessed are you, God of our fathers<br>
+Glory and praise for evermore<br>
+Blessed your great and glorious holy name<br>
+Glory and praise for evermore<br>
 		
-X.28
-Ring out your joy, give glory to God
-Lift up your hearts and sing
-Let all creation tell of his name
-Praise Him for evermore
+Blest in the temple of your glory...<br>
+Blessed are your who gaze into the depths...<br>
 
-Blessed are you, God of our fathers
-Glory and praise for evermore
-Blessed your great and glorious holy name
-Glory and praise for evermore
-		
-Blest in the temple of your glory…
-Blessed are your who gaze into the depths…
+Blest in the firmament of heaven...<br>
+Blessed are you who walk on wings of wind...<br>
 
-Blest in the firmament of heaven…
-Blessed are you who walk on wings of wind…
+May saints and angels bless your holy name...<br>
+Blessing from sea and earth and heaven...<br>
+<br>
+X.31<br>
+Colours of day dawn into the mind<br>
+The Sun has come up, the night is behind<br>
+Go down to the city, into street<br>
+And let’s give the message to the people we meet<br>
+So light up the fire and let the flame burn<br>
+Open the door, let Jesus return<br>
+Take seeds of his Spirit, let the fruit grow<br>
+Tell the people of Jesus, let his love show<br>
 
-May saints and angels bless your holy name…
-Blessing from sea and earth and heaven…
+Go through the park, on into the town<br>
+The sun still shines on, it never goes down<br>
+The light of the world is risen again<br>
+The people of darkness are needing our friend<br>
 
-X.31
-Colours of day dawn into the mind
-The Sun has come up, the night is behind
-Go down to the city, into street
-And let’s give the message to the people we meet
-So light up the fire and let the flame burn
-Open the door, let Jesus return
-Take seeds of his Spirit, let the fruit grow
-Tell the people of Jesus, let his love show
-
-Go through the park, on into the town
-The sun still shines on, it never goes down
-The light of the world is risen again
-The people of darkness are needing our friend
-
-Open your eyes, look into the sky
-The darkness has come, the sun came to die
-The evening draws on, the sun disappears
+Open your eyes, look into the sky<br>
+The darkness has come, the sun came to die<br>
+The evening draws on, the sun disappears<br>
 But Jesus is living and His Spirit is near.
