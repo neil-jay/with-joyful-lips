@@ -13,8 +13,8 @@ And Paraclete who is the bond of love.<br>
 <br>
 # AL.12 <span> NO LAMP LIKE YOUR WORDS<br>
 ### ***Chorus:*** <br>
-**There’s no Lamp like your words, Lord,<br>
-to guide my steps, Alleluia, alleluia.**<br>
+**There’s no Lamp like your words, Lord,**<br>
+**to guide my steps, Alleluia, alleluia.**<br>
 
 From the darkness to the light,<br>
 who will be my guide!<br>        
@@ -30,8 +30,8 @@ who will take me safe?<br>
 <br>
 # AL.17 <span> GLORIFY THE LORD<br>
 ### ***Chorus:*** <br>
-**Glorify the Lord (3)... with me! Alleluia (3)...<br>
-Praise the Lord.**<br>
+**Glorify the Lord (3)... with me! Alleluia (3)...**<br>
+**Praise the Lord.**<br>
 
 I sought the Lord and he answered me,<br>
 From all my terrors, he set me free.<br>
@@ -139,7 +139,7 @@ He sends me to give good news to the poor.<br>
 Sing his message loud and clear, alleluia!<br>
 Jesus Christ our Lord is near, alleluia!<br>
 
-Jesus the Lord of life, alleluia!br>
+Jesus the Lord of life, alleluia!<br>
 Rising over death and strife, alleluia!<br>
 
 Speak to us, Eternal Word, alleluia!<br>
