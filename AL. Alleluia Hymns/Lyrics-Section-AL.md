@@ -1,13 +1,13 @@
 # AL.10 <span> ALLELUIA! PRAISE GOD /PSALM 116<br> 	
 ### ***Chorus:*** <br>
-Alleluia! Praise God, O praise the Lord! (2)<br>
+**Alleluia! Praise God, O praise the Lord! (2)**<br>
 
 O praise the Lord, you nations of the earth!<br>
 Acclaim the Lord, you people he has ransomed.<br>
 
 The love of God is a strong and mighty force,<br>
 His faithfulness, eternal as the heavens.<br>
-		
+
 All praise to God, the Father and the Son,<br>
 And Paraclete who is the bond of love.<br>
 <br>
