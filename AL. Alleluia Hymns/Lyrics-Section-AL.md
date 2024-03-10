@@ -1,4 +1,4 @@
-# AL.10 <span> ALLELUIA! PRAISE GOD /PSALM 116<br> 	
+# AL.10 <span> ALLELUIA! PRAISE GOD / PSALM 116<br> 	
 ### ***Chorus:*** <br>
 **Alleluia! Praise God, O praise the Lord! (2)**<br>
 
@@ -11,9 +11,10 @@ His faithfulness, eternal as the heavens.<br>
 All praise to God, the Father and the Son,<br>
 And Paraclete who is the bond of love.<br>
 <br>
-AL.12<br>
-There’s no Lamp like your words, Lord, to guide my steps,<br>
-Alleluia, alleuia<br>
+# AL.12 <span> NO LAMP LIKE YOUR WORDS<br>
+### ***Chorus:*** <br>
+**There’s no Lamp like your words, Lord,
+to guide my steps, Alleluia, alleluia.**<br>
 
 From the darkness to the light<br>
 who will be my guide<br>        
