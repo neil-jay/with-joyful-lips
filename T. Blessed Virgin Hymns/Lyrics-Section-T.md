@@ -240,10 +240,10 @@ Journeying through life alone.<br>
 Since we're most loved by a mother,<br>
 Jesus gave us his own.<br>
 ### ***Chorus:***<br>
-Be with us, Mary, along the way.<br>
-Guide every step we take.<br>
-Lead us to Jesus, your loving Son.<br>
-Come with us, Mary, come.<br>
+**Be with us, Mary, along the way.**<br>
+**Guide every step we take.**<br>
+**Lead us to Jesus, your loving Son.**<br>
+**Come with us, Mary, come.**<br>
 
 When Jesus met with rejection,<br>
 Mary stood by the cross.<br>
@@ -428,6 +428,7 @@ As God the Father’s will was done,<br>
 When from death’s hold He freed your Son.<br>
 <br>
 # T.45 <span> MY SOUL PROCLAIMS THE LORD<br>
+### ***Chorus***<br>
 **My soul proclaims the Lord, my God.**<br>
 **My spirit sings his praise.**<br>
 **He looks on me, He lifts me up,**<br>
