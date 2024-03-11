@@ -184,6 +184,7 @@ Showing the path to Christ we must trace,<br>
 Mary, our mother, hail full of grace.<br>
 <br>
 # T.37 <span> WHEN YOU CAME TO BETHLEHEM<br>
+### ***Chorus:***<br>
 **Ave Maria, Mother of God’s son.**<br>
 **Mother of our Saviour,**
 **Christ the Promised one...**<br>
