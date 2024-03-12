@@ -48,12 +48,12 @@ There's my neighbour so tried by injustice.<br>
 <br>
 # Q.10 <span> IN NEED OF LIBERATION<br>
 ### ***Chorus:***<br>
-**The world stands in need of liberation, my Lord,<br>
-**It still has to feel your power.<br>
-**The blind and the deaf, the dumb and the maimed,<br>
-**All need to feel your healing touch.<br>
-**The world stands in need of liberation, my Lord.<br>
-**It still has to learn to love.<br>
+**The world stands in need of liberation, my Lord,**<br>
+**It still has to feel your power.**<br>
+**The blind and the deaf, the dumb and the maimed,**<br>
+**All need to feel your healing touch.**<br>
+**The world stands in need of liberation, my Lord.**<br>
+**It still has to learn to love.**<br>
 
 There are those who have eyes but refuse to see<br> 
 the inhumanity that’s done.<br>
