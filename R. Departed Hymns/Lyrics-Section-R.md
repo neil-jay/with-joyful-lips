@@ -89,10 +89,10 @@ You'll be mine for evermore.<br>
 <br>
 # R.10 <span> MAY THE ANGELS GO WITH YOU<br>
 ### ***Chorus:***<br>
-**May the angels go with you,<br>
-**To the home of God's glory.<br>
-**May the saints bid you welcome<br>
-**To the land of the living.<br>
+**May the angels go with you,**<br>
+**To the home of God's glory.**<br>
+**May the saints bid you welcome**<br>
+**To the land of the living.**<br>
 
 Praise the Lord, all you nations.<br>
 Praise the Lord, all you people.<br>
