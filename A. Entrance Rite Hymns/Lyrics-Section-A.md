@@ -605,7 +605,7 @@ Unto Him shall the praying of the people be,<br>
 We are praying together unto Him.<br>
 <br>
 # A.58<span> JOYFULLY COME<br>
-### **Chorus:***<br>
+### ***Chorus:***<br>
 **Joyfully come to proclaim the Lord with song,**<br>
 **Joyfully come to proclaim the Lord.**<br>
 
@@ -622,7 +622,7 @@ To his flock he gives his body and his blood.<br>
 Let’s go up, come to the Lord’s most holy mountain,<br>
 Stay with him until we learn his way of love.<br>
 <br>
-# A.59<span> O GOD, MY GOD ? Psalm 62<br>
+# A.59<span> O GOD, MY GOD / Psalm 62<br>
 ### ***Chorus:***<br>
 **O God, my God, for you my soul is is thirsting.**<br>
 
@@ -812,8 +812,8 @@ Who throws himself into his mother’s arms,<br>
 Sure she’ll free him from his qualms.<br>
 <br>
 # A.75<span> ALLELUIA, HEAR THE WORD<br>
-Hear the word<br>
-Alleluia (5 x 2)<br>
+### ***Chorus:***<br>
+**Alleluia (5 x 2)**<br>
 
 Hear the word of God,<br>
 Keep it in your heart,<br>
@@ -944,6 +944,7 @@ If we should thirst for truth and ask for more of life,<br>
 Then shall the Spirit waken faith that is real.<br>
 <br>
 # A.81<span> WHAT A JOY / Psalm 121<br>
+### ***Chorus:***<br>
 **What a joy, What a joy for us to say:**<br>
 **“We’re on our way to the house of the Lord!” (2)**<br>
 
@@ -1744,7 +1745,7 @@ Let’s bend our knees to Him,<br>
 Our tongue confess that He’s Lord indeed,<br>
 Let’s give to Him our offering in celebration praise.<br>
 <br>
-A.134<span> I WANT TO SING<br>
+# A.134<span> I WANT TO SING<br>
 ### ***Chorus:***<br>
 **I want to sing,**<br>
 **I want to shout your praise, O Lord,**<br>
