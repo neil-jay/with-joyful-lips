@@ -1572,15 +1572,29 @@ As we enter the house of the Lord.<br>
 # A.122<span> COME AND GO WITH ME<br>
 
 Come and go with me to my Father’s house<br>
-...where there’s joy, joy, joy.<br>
+To my Father's house (2)<br>
+Come and go with me to my Father’s house<br>
+where there’s joy, joy, joy.<br>
 
-Jesus is the way of my Father’s house...<br>
+Jesus is the way to my Father’s house<br>
+To my Father's house (2)<br>
+Jesus is the way to my Father’s house<br>
+where there’s joy, joy, joy.<br>
 
-Jesus is the light in my Father’s house...<br>
+Jesus is the light in my Father’s house<br>
+In my Father's house (2)<br>
+Jesus is the light in my Father’s house<br>
+where there’s joy, joy, joy.<br>
 
-There is room for all in my Father’s house...<br>
+There is room for all in my Father’s house<br>
+In my Father's house (2)<br>
+There is room for all in my Father’s house<br>
+where there’s joy, joy, joy.<br>
 
-We will praise the Lord in my Father’s house...<br>
+We will praise the Lord in my Father’s house<br>
+In my Father's house (2)<br>
+We will praise the Lord in my Father’s house<br>
+where there’s joy, joy, joy.<br>
 <br>
 # A.124<span> WHEREVER TWO OR THREE<br>
 ### ***Chorus:***<br>
