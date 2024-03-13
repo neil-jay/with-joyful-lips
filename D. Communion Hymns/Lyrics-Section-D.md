@@ -825,25 +825,27 @@ It’s a peace that the world cannot understand<br>
 Peace to know, peace to live<br>
 My peace I give unto you<br>
 <br>
-D.132<br>	
-As the deer pants for the water<br>
-So my soul longs after you<br>
-You alone are my heart’s desire<br>
-And I long to worship You<br>
-You alone are my strength, my shield<br>
-To You alone may my Spirit yield<br>
-You alone are my heart’s desire<br>
-And I long to worship you<br>
+# D.132<span> AS THE DEER<br>
 
-I want You more than gold and silver<br>
-Only You can satisfy<br>
+As the deer pants for the water,<br>
+So my soul longs after you.<br>
+You alone are my heart’s desire<br>
+And I long to worship You.<br>
+### ***Chorus:***<br>
+**You alone are my strength, my shield,**<br>
+**To You alone may my Spirit yield.**<br>
+**You alone are my heart’s desire**<br>
+**And I long to worship you.**<br>
+
+I want You more than gold and silver,<br>
+Only You can satisfy.<br>
 You alone are the real joy-giver<br>
-And the apple of my eye<br>
+And the apple of my eye.<br>
 
 You’re my friend and You are my brother<br>
-Even though You are my Lord<br>
-I love You more than any other<br>
-So much more than anything<br>
+Even though You are my Lord.<br>
+I love You more than any other,<br>
+So much more than anything.<br>
 <br>
 D.136<br>
 Take this bread: It is my body<br>

@@ -124,25 +124,26 @@ And this wine into your blood<br>
 Change our lives, make us united, Lord<br>
 To spread the love of Christ, the Lord<br>
 <br>
-B.27<br>
-In bread we bring you Lord, our bodies labour,<br>
-in wine we offer you our spirit’s grief<br>
-We do not ask you, Lord, who is my neighbour?<br>
-But stand united now, one in belief<br>
-Oh we have gladly heard your Word, your holy Word<br>
-And now in answer Lord, our gifts we bring<br>
-Our selfish hearts make true,<br>
-Our failing faith renew<br>
-Our lives belong to you, our Lord and King<br>
+# B.27<span> IN BREAD WE BRING YOU, LORD<br>
 
-The bread we offer you is blessed and broken<br>
-And it becomes for us our spirit’s food<br>
-Over the cup we bring, your Word is spoken<br>
-Make it your gift to us, your healing blood<br>
-Take all that daily toil plants in our heart’s poor soil<br>
+In bread we bring you, Lord, our bodies' labour.<br>
+in wine we offer you our spirit’s grief.<br>
+We do not ask you, Lord, who is my neighbour?<br>
+But stand united now, one in belief.<br>
+Oh we have gladly heard your Word, your holy Word<br>
+And now in answer, Lord, our gifts we bring.<br>
+Our selfish hearts make true,<br>
+Our failing faith renew.<br>
+Our lives belong to you, our Lord and King.<br>
+
+The bread we offer you is blessed and broken,<br>
+And it becomes for us our spirit’s food.<br>
+Over the cup we bring, your Word is spoken:<br>
+Make it your gift to us, your healing blood.<br>
+Take all that daily toil plants in our heart’s poor soil,<br>
 Take all we start and spoil, each hopeful dream,<br>
-The chances we have missed, the graces we resist<br>
-Lord, in this Eucharist, take and redeem<br>
+The chances we have missed, the graces we resist,<br>
+Lord, in this Eucharist, take and redeem.<br>
 <br>
 B.28<br>
 Blest are you, Lord God of all creation,<br>
