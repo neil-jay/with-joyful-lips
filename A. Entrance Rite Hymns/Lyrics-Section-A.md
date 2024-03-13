@@ -1,11 +1,12 @@
-A1.<br>
-Joy was in my heart, alleluia, when I heard them say:<br>
-“Let us go to God’s House.”<br>
+# A.1 <span>JOY WAS IN MY HEART / Psalm 121<br>
+### ***Chorus:***<br>
+**Joy was in my heart, alleluia, when I heard them say:**<br>
+**“Let us go to God’s House.”**<br>
 
 And now our feet are standing, alleluia.<br>
 Within yours gates, O Jerusalem.<br>
 
-Jerusalem, most beautiful  city,<br>
+Jerusalem, most beautiful  city.<br>
 So strongly compact, alleluia.<br>
 On you converge all the tribes of the Lord.<br>
 
@@ -13,54 +14,60 @@ May His peace reign in your walls,<br>
 Happiness and love in all your homes, alleluia.<br>
 For you are the house of the Lord, our God.<br>
 <br>
-A4.<br>
-I will turn my steps to the altar of God<br>
-the gladness of my life<br>
+# A(A).4<span> I WILL TURN MY STEPS<br>
+### ***Chorus-1:***<br>
+**I will turn my steps to the altar of God,**<br>
+**the gladness of my life.**<br>
+### ***Chorus-2:***<br>
+**I'll turn my steps to the altar of God,**<br>
+**I'll turn my steps to the gladness of my life.**<br>
 
-Show your justice in/pleading my cause<br>
-Let me walk in the/way of your love<br>
+Show your justice in pleading my cause,<br>
+Let me walk in the way of your love.<br>
 
-Lead me on with your/power and strength<br>
-And my courage will/never be spent<br>
+Lead me on with your power and strength<br>
+And my courage will never be spent.<br>
 
-Fill my heart with your/truth and your light<br> 
-As I enter with/joy in your sight<br>
+Fill my heart with your truth and your light<br> 
+As I enter with joy in your sight.<br>
 
-Holy praises to/God I will sing<br>
-I will trust and will/hope in my King<br>
+Holy praises to God I will sing.<br>
+I will trust and will hope in my King.<br>
 
-Glory be to the / Father and Son<br>
-And the Spirit while / ages are run<br>
+Glory be to the Father and Son<br>
+And the Spirit while ages are run.<br>
 <br>
-A.7<br>
-All the Earth proclaim the Lord<br>
-Sing your praise to God<br>
+# A.7<span> ALL THE EARTH<br>
+### ***Chorus:***<br>
+**All the Earth proclaim the Lord**<br>
+**Sing your praise to God.**<br>
 
-Serve you the Lord, heart filled with gladness<br>
-Come into his presence, singing for joy<br>
+Serve you the Lord, heart filled with gladness.<br>
+Come into his presence, singing for joy!<br>
 
-Know that the Lord is our Creator<br>
-Yes, he is our Father: we are his children<br>
+Know that the Lord is our Creator,<br>
+Yes, he is our Father: we are his children.<br>
 
-We are the sheep of his green pasture<br>
-For we are his people:  he is our God<br>
+We are the sheep of his green pasture,<br>
+For we are his people:  he is our God.<br>
 
-Enter his gates, bringing thanksgiving<br>
-O enter his courts while singing his praise<br>
+Enter his gates, bringing thanksgiving,<br>
+O enter his courts while singing his praise.<br>
 
-Our Lord is good, his love enduring<br>
-His word is abiding now with us all<br>
+Our Lord is good, his love enduring,<br>
+His word is abiding now with us all.<br>
 
-Honour and praise be to the Father<br>
-The Son and the Spirit, world without end<br>
+Honour and praise be to the Father,<br>
+The Son and the Spirit, world without end.<br>
 <br>
-A.15<br>
-Ant. 1:<br>
-With joyful lips, O Lord, I will sing your<br>
-praise, You are a feast for my soul.<br>
-
-Ant. 2: O my God, it is you seek;<br>
-my soul is thirsting for you.<br>
+# A.15<span> LONGING FOR GOD<br>
+### ***Chorus-1:***<br>
+**With joyful lips, O Lord,<br>
+I will sing your praise,<br>
+You are a feast for my soul.<br>
+### ***Chorus-2:***<br>
+**O my God, it is you seek;**<br>
+**my soul is thirsting for you.**<br>
 
 O God, you are my God, and my hope,<br>
 my soul thirsts after you.<br>
@@ -89,147 +96,144 @@ in you I put my trust.<br>
 To Father, Son and Spirit give glory,<br>
 both now and evermore.<br>
 <br>
-AA.17<br>
-All peoples of the universe<br>
-Sing to the Lord with cheerful voice<br>
-Him loudly praise and gladly serve<br>
-Into his presence, come with songs<br>
+# AA.17<span> ALL PEOPLES OF THE UNIVERSE /Psalm 99<br>
+### ***Chorus:***<br>
+**All peoples of the universe,**<br>
+**Sing to the Lord with cheerful voice,**<br>
+**Him loudly praise and gladly serve,**<br>
+**Into his presence, come with songs.**<br>
 
-Know that the Lord is God indeed<br>
-He made us, we belong to Him<br>
-We all on earth his people are<br>
-The flock he tends his sheep we are<br>
+Know that the Lord is God indeed!<br>
+He made us, we belong to Him,<br>
+We, all on earth his people are,<br>
+The flock he tends, his sheep we are.<br>
 
-O enter then his gates with praise<br>
-These courts of his approach with joy<br>
-Give thanks to him who reigns on high<br>
-And bless his ever holy name<br>
+O enter then his gates with praise,<br>
+These courts of his approach with joy,<br>
+Give thanks to him who reigns on high,<br>
+And bless his ever holy name.<br>
 
-The Lord is gracious, he is good<br>
-Eternal is his love for us<br>
-His mercy lasts from age to age<br>
-His faithfulness has never failed<br>
+The Lord is gracious, he is good;<br>
+Eternal is his love for us.<br>
+His mercy lasts from age to age.<br>
+His faithfulness has never failed.<br>
 
-To God the Father glory be<br>
+To God the Father glory be,<br>
 To Jesus Christ, his Son, our Lord<br>
-And to the Spirit, source of love<br>
-Give praise both now and evermore<br>
+And to the Spirit, source of love,<br>
+Give praise both now and evermore.<br>
 <br>
-A.22 YOUR WORDS, O LORD<br>
-Ant: Alleluia, alleluia!<br>
+# A.22<span> YOUR WORDS, O LORD<br>
+### ***Chorus:***<br>
+**Alleluia, alleluia!**<br>
 
-Your words. O Lord, are the joy of our hearts.<br>
+Your words, O Lord, are the joy of our hearts.<br>
 
 Your words, O Lord, are the light of our eyes.<br>
 
 Your words, O Lord, are the truth of our life.<br>
 <br>
-A.25<br>
-Our Joy, O Lord, is in you<br>
+# AA.25 <span>OUR JOY, O LORD, IS IN YOU<br>
 
-Our joy, O Lord is in you (2)<br>
-You gather us around your table (2)<br>
-You make us one at heart…. In peace and love<br>
+Our joy, O Lord, is in you (2)<br>
+You gather us around your table. (2)<br>
+You make us one at heart... in peace and love.<br>
 
-Our light you are and our life<br>
-You guide your people to the Kingdom<br>
-You share with us, O Lord… In peace and love<br>
+Our light you are and our life.<br>
+You guide your people to the Kingdom.<br>
+You share with us, O Lord... your peace and love.<br>
 
-This day of yours, Lord, we hail<br>
-We long to hear your words of comfort<br>
-And evermore to live… in peace and love<br>
+This day of yours, Lord, we hail!<br>
+We long to hear your words of comfort,<br>
+And evermore to live… in peace and love.<br>
 
-This bread of life we shall eat<br>
-We’ll share the cup that brings salvation<br>
-United we shall be….. In peace and love<br>
+This bread of life we shall eat.<br>
+We’ll share the cup that brings salvation.<br>
+United we shall be... in peace and love.<br>
 
-To God the father give praise<br>
-To God the Son and Holy Spirit<br>
-Give glory to the God….of peace and love<br>
+To God the father give praise,<br>
+To God the Son and Holy Spirit.<br>
+Give glory to the God... of peace and love.<br>
 <br>
-A.26<br>
-Come, my (Brothers)<br>
+# A.26<span> COME, MY (BROTHERS) / Psalm 94<br>
 
-Come, my friends, let’s praise the Lord, Alleluia<br> 
-Praise the Lord, for his God, Alleluia<br>
+Come, my friends, let’s praise the Lord, alleluia,<br> 
+Praise the Lord, for his God, alleluia.<br>
 
-Come to him to give him thanks, alleluia<br>
-Hail the Lord with joyful songs alleluia<br>
+Come to him to give him thanks, alleluia,<br>
+Hail the Lord with joyful songs, alleluia.<br>
 
-For a mighty God is he alleluia<br>
-He is king of all the world, alleluia<br>
+For a mighty God is he, alleluia.<br>
+He is king of all the world, alleluia.<br>
 
-In his hands are valleys deep, alleluia<br>
-In his hands are mountain peaks, alleluia<br>
+In his hands are valleys deep, alleluia,<br>
+In his hands are mountain peaks, alleluia.<br>
 
-In his hands are all seas, alleluia<br>
-And the land which he has made, alleluia<br>
+In his hands are all seas, alleluia,<br>
+And the land which he has made, alleluia.<br>
 
-Come, my friends, let’s praise the Lord, alleluia<br>
-He is God and we are his, alleluia<br>
+Come, my friends, let’s praise the Lord, alleluia,<br>
+He is our God and we are his, alleluia.<br>
 
-Praise the Father, praise the Son, alleluia<br>
-Praise the Holy Spirit too, alleluia<br>
+Praise the Father, praise the Son, alleluia,<br>
+Praise the Holy Spirit too, alleluia.<br>
 <br>
-A.27<br>
-Your Word Stands Firm<br>
+# A.27<span> YOUR WORD STANDS FIRM<br>
 
-Your word stands firm forever<br>
-Your truth, O Lord, is everlasting<br>
-Your law: my joy, my true delight<br>
-Alleluia, alleluia, alleluia, alleluia<br>
+Your word stands firm for ever,<br>
+Your truth, O Lord, is everlasting,<br>
+Your law: my joy, my true delight.<br>
+### ***Chorus:***<br>
+**Alleluia, alleluia, alleluia, alleluia.**<br>
 
-Your word: a lamp to guide my steps<br>
-A light to shine on paths of darkness<br>
-I place my trust in your commands<br>
+Your word: a lamp to guide my steps.<br>
+A light to shine on paths of darkness:<br>
+I place my trust in your commands.<br>
 
-My words are Sprit, says the Lord<br>
-My words are life for all believers<br>
-My teaching keep and never die<br>
+My words are Sprit, says the Lord,<br>
+My words are life for all believers,<br>
+My teaching keep and never die.br>
 
-Whoever listens to my words<br>
-And firmly trusts in Him who sent me<br>
-Eternal life he shall enjoy<br>
+Whoever listens to my words,<br>
+And firmly trusts in Him who sent me.<br>
+Eternal life he shall enjoy.<br>
 
-The one who loves me, keeps my word<br>
-My Father then, in turn, will love him<br>
-We’ll come and make our home with him<br>
+The one who loves me, keeps my word,<br>
+My Father then, in turn, will love him.<br>
+We’ll come and make our home with him.<br>
 
-Be you all faithful to my word<br>
-Become thus truly my disciples<br>
-And know the truth that makes you free<br>
+Be you all faithful to my word,<br>
+Become thus truly my disciples,<br>
+And know the truth that makes you free.<br>
 <br>
-A.28<br>
-This is the Day the Lord has made<br>
+# A.28<span> THIS IS THE DAY THE LORD HAS MADE<br>
 
-This is the day that the Lord has made<br>
-Let us be glad and rejoice in it<br>
-Let us be glad and rejoice<br>
-This is the day that the Lord has made<br>
+This is the day that the Lord has made.<br>
+Let us be glad and rejoice in it!<br>
+Let us be glad and rejoice!<br>
+This is the day that the Lord has made.<br>
+### ***Chorus:***<br>
+**Alleluia, alleluia, alleluia is our song of joy.**<br>
+**Sing the song we will sing forever:**<br>
+**Alleluia, alleluia!**<br>
 
-Alleluia, alleluia, alleluia is our song of joy<br>
-Sing the song we will sing forever;<br>
-Alleluia, alleluia<br>
+This is the day when the Lord arose.<br>
 
-This is the day when the Lord arose<br>
-
-This is the day when we rise with him<br>
+This is the day when we rise with him.<br>
 <br>
-AA.29<br>
-WITHOUT SEEING YOU<br>
-
-Without seeing you, we love you;<br>
-Without seeing, we believe;<br>
-And we sing, Lord, your glory,<br>
-We believe in you.<br>
+## AA.29 <span>WITHOUT SEEING YOU<br>
+### ***Chorus:***<br>
+**Without seeing you, we love you;**<br>
+**Without seeing, we believe;**<br>
+**And we sing, Lord, your glory,**<br>
+**We believe in you.**<br>
 
 Blessed is he who will listen to your word,<br>
 He shall never see death,<br>
 For by you, he is heir to new life.<br>
 
-Ch:<br>
-Lord, to whom shall we go?<br>
-You alone have the words of eternal life.<br>
+**Lord, to whom shall we go?**<br>
+**You alone have the words of eternal life.**<br>
 
 He who abides in the Spirit of the Word,<br>
 Finds his true life in you,<br>
@@ -239,13 +243,13 @@ Lord, we believe you abide within our hearts;<br>
 Keep us safe in your love,<br>
 Give us all the hope of your power.<br>
 <br>
-A.30<br>
-Ant:<br>
-Let me sing of your law, O my God;<br>
-Let your love come upon your people.<br>
+# A.30<span> LET ME SING OF YOUR LAW / Psalm 118<br>
+### ***Chorus:***<br>
+**Let me sing of your law, O my God;**<br>
+**Let your love come upon your people.**<br>
 
-Through your own word. Lord, give us life:<br>
-In your holy keeping. happy is my soul.<br>
+Through your own word, Lord, give us life;<br>
+In your holy keeping, happy is my soul.<br>
 
 I have made known to you my ways;<br>
 You have heard my pleading;<br>
@@ -260,20 +264,21 @@ Ever keep your promise, let my heart be glad.<br>
 O take me far from evil ways,<br>
 And in your great mercy, guide me in your paths.<br>
 
-Within your law I choose to live:<br>
+Within your law I choose to live;<br>
 In the paths of wisdom, I walk evermore.<br>
 
 My heart is strong, my joy is full:<br>
-Following your law, Lord. freely do I walk.<br>
+Following your law, Lord, freely do I walk.<br>
 
-praise to Che Father, and to the Son:<br>
+Praise to the Father, and to the Son;<br>
 Glory to the Spirit, now and evermore.<br>
 <br>
-A.31<br>
-Alleluia, alleluia,<br>
-All the earth rejoice, sing your praises;<br>
-Alleluia, alleluia,<br>
-For the Lord has shown his salvation.<br>
+# A.31<span> ALL THE EARTH REJOICE<br>
+### ***Chorus:***<br>
+**Alleluia, alleluia,**<br>
+**All the earth rejoice, sing your praises;**<br>
+**Alleluia, alleluia,**<br>
+**For the Lord has shown his salvation.**<br>
 
 O sing to the Lord a new song of praises<br>
 for he has worked wonders,<br>
@@ -285,63 +290,64 @@ and revealed his justice to the nations,<br>
 The Lord has remembered his mercy<br>
 and his love for Israel's house.<br>
 
-All the ends of the earth have seen God's<br>
-salvation. the victory of their Lord;<br>
+All the ends of the earth have seen God's salvation,<br>
+the victory of their Lord;<br>
 Make a joyful noise to the Lord, all the earth;<br>
 be glad, ring out your joy to God.<br>
 <br>
-A.32<br>
-I rejoiced when I heard the people saying:<br>
-Let’s go to the temple of the Lord<br>
-And now at least our feet are standing<br>
-Within your gates, O Jerusalem<br>
+# A.32<span> I REJOICED WHEN I HEARD<br>
+### ***Chorus:***<br>
+**I rejoiced when I heard the people saying:**<br>
+**Let’s go to the temple of the Lord,**<br>
+**And now at least our feet are standing**<br>
+**Within your gates, O Jerusalem!**<br>
 
-Jerusalem, O fairest city<br>
-So strongly built as one united whole<br>
-It is there that the tribes now gather<br>
-All the tribes to worship the Lord<br>
+Jerusalem, O fairest city,<br>
+So strongly built as one united whole!<br>
+It is there that the tribes now gather,<br>
+All the tribes to worship the Lord.<br>
 
-For the peace of Jerusalem pray:<br>
-Prosperity to all your dwelling places<br>
-Let there be peace everywhere within your ramparts<br>
-Let there be safety within your towers<br>
+For the peace of Jerusalem, pray:<br>
+Prosperity to all your dwelling places,<br>
+Let there be peace everywhere within your ramparts,<br>
+Let there be safety within your towers.<br>
 
-For love of my people and my friends<br>
-This is my prayer: may lasting peace be yours<br>
-For the sake of the house of the Lord<br>
-I shall plead and pray for your good<br>
+For love of my people and my friends,<br>
+This is my prayer: may lasting peace be yours,<br>
+For the sake of the house of the Lord,<br>
+I shall plead and pray for your good.<br>
 
 To the Father almighty sing your praise<br>
-And to the Son, Redeemer of the world<br>
+And to the Son, Redeemer of the world,<br>
 To the Spirit who dwells in our hearts<br>
-Both now and forever, Amen<br>
+Both now and forever, Amen.<br>
 <br>
-AA.34<br>
-Come with your music and sing to the Lord,<br>
-Praise to the name of the Lord.<br>
-Gather and lift up your voice in his praise,<br>
-Lord of our gladness, (gladness) and joy.<br>
+# AA.34<span> THE PRAISE OF GOD<br>
 
-He is your refuge. you people of God...<br>
+Come with your music and sing to the Lord,<br>
+**Praise to the name of the Lord.**<br>
+Gather and lift up your voice in his praise,<br>
+**Lord of our gladness, (gladness) and joy.**<br>
+
+He is your refuge, you people of God...<br>
 Master of space and the maker of earth...<br>
 
 Offer him glory and power and praise...<br>
 Lord and Creator, our Father and God...<br>
 
-Let all the trees clap their hands. shout for joy.<br>
+Let all the trees clap their hands, shout for joy,<br>
 Mountains and hills, bless the Lord,<br>
 praise his name...<br>
 
 Come, priestly people, O come, Kingly race,<br>
-Sing till the pow•r of the Lord comes on you..<br>
+Sing till the power of the Lord comes on you...<br>
 <br>
-A.36<br>
-Ref: <span>
-To God in gladness sing,<br>
-How great his name!<br>
-
-Give thanks to him for his marvellous deeds,<br>
-Alleluia, alleluia!<br>
+# A.36<span> TO GOD IN GLADNESS SING<br>
+### ***Chorus:***<br>
+**To God in gladness sing,**<br>
+**How great his name!**<br>
+**Give thanks to him for his marvellous deeds,**<br>
+**Alleluia, alleluia!**<br>
 
 He came arnong his people,<br>
 he dwelt among the poor,<br>
@@ -368,32 +374,32 @@ the Universe pervades.<br>
 Through him a new creation<br>
 begins and never ends.<br>
 <br>
-A.38<br>
-Word of God<br>
+# A.38<span> WORD OF GOD<br>
 
-Word of God, come down on earth, alleluia<br>
-Touch our hearts and bring to birth, alleluia<br>
-Faith and hope and lasting love, alleluia<br>
-Word of God, come down on earth<br>
+Word of God, come down on earth, alleluia,<br>
+Touch our hearts and bring to birth, alleluia,<br>
+Faith and hope and lasting love, alleluia,<br>
+Word of God, come down on earth.<br>
 
-Speak to us, eternal Word, alleluia<br>
-You who brought all things to like, alleluia<br> 
-Word that came from heav’n to die, alleluia<br>
-Speak to us, eternal Word<br>
+Speak to us, eternal Word, alleluia,<br>
+You who brought all things to life, alleluia,<br> 
+Word that came from heav’n to die, alleluia,<br>
+Speak to us, eternal Word.<br>
 
-Speak and heal our mortal ills, alleluia<br>
-Word that caused blind eyes to see, alleluia<br>
-Deaf we are, our healer be, alleluia<br>
-Speak and heal our mortal, alleluia<br>
+Speak and heal our mortal ills, alleluia,<br>
+Word that caused blind eyes to see, alleluia,<br>
+Deaf we are, our healer be, alleluia,<br>
+Speak and heal our mortal ills.<br>
 
-Word made flesh, we long for you, alleluia<br>
-Word that speaks the Father’s love, alleluia<br>
-Word that sends the Spirit blest, alleluia<br>
-Word made flesh, we long for you<br>
+Word made flesh, we long for you, alleluia,<br>
+Word that speaks the Father’s love, alleluia,<br>
+Word that sends the Spirit blest, alleluia,<br>
+Word made flesh, we long for you.<br>
 <br>
-A.39<br>
-Your Word lights up my way and guides my steps,<br>
-Lord, your law brings salvation.<br>
+# A.39<span> YOUR WORD LIGHTS UP / Psalm 118<br>
+### ***Chorus:***<br>
+**Your Word lights up my way and guides my steps;**<br>
+**Lord, your law brings salvation.**<br>
 
 How happy those of blameless life,<br>
 those who walk in the love of the Lord.<br>
@@ -410,108 +416,122 @@ may I ever obey your decrees.<br>
 Attentive to all your commandments,<br>
 I shall go my way undismayed.<br>
 
-Give praise to the Father almighty.<br>
+Give praise to the Father almighty,<br>
 To the Son and the Spirit for ever.<br>
 <br>
-A.41<br>
-The king of glory comes, the nation rejoices<br>
-Open the gates before him, lift up your voices<br>
+# A.41<span> THE KING OF GLORY<br>
+### ***Chorus:***<br>
+**The king of glory comes, the nation rejoices.**<br>
+**Open the gates before him, lift up your voices.**<br>
 
 Who is the King of glory? How shall we call him?<br>
-He is Emmanuel, the promised of ages<br>
+He is Emmanuel, the promised of ages.<br>
 
-In all of Galilee, in city or village<br>
-He goes among his people, curing their illness<br>
+In all of Galilee, in city or village,<br>
+He goes among his people, curing their illness.<br>
 
-Sing then of David’s Son, our Saviour and brother<br>
-In all of Galilee, was never another<br>
+Sing then of David’s Son, our Saviour and brother,<br>
+In all of Galilee, was never another.<br>
 
-He gave his life for us, the pledge of salvation<br>
-He took upon himself the sins of the nation<br>
+He gave his life for us, the pledge of salvation,<br>
+He took upon himself the sins of the nation.<br>
 
-He conquered sin and death : he truly has risen<br>
-And he will share with us his heavenly vision<br>
+He conquered sin and death; he truly has risen.<br>
+And he will share with us his heavenly vision.<br>
 <br>
-A.42<br>
-Glory to God on high<br>
-Peace to all good wills<br>
-Honour and praise Him all of our days<br>
-And love Him in all mankind<br>
+# A.42<span> GLORY TO GOD ON HIGH<br>
+### ***Chorus:***<br>
+**Glory to God on high,**<br>
+**Peace to all good wills.**<br>
+**Honour and praise Him all of our days**<br>
+**And love Him in all mankind.**<br>
 
 Sing out praise to God<br>
-For his wondrous deeds<br>
-Know for sure that in his love<br>
-He answers all our needs<br>
+For his wondrous deeds,<br>
+Know for sure that in his love,<br>
+He answers all our needs.<br>
 
-Praise the Lord in prayer<br>
-Praise the Lord in song<br>
-Praise the Lord all we do<br>
-And we can’t go far wrong<br>
+Praise the Lord in prayer,<br>
+Praise the Lord in song.<br>
+Praise the Lord all we do.<br>
+And we can’t go far wrong.<br>
+
+Seek and you will find;<br>
+Ask and he will give.<br>
+Trust the Lord with all your might,<br>
+And then we'll always live.<br>
+
+To the Father now give praise<br>
+And praise be to the Son.<br>
+And by his Spirit's love in us.<br>
+We know that God is one.<br>
 <br>
-A.47<br>
-The love of Christ has gathered us together,<br>
-Rejoice in Him and be glad<br>
+# A.47<span> THE LOVE OF CHRIST<br>
+### ***Chorus:***<br>
+**The love of Christ has gathered us together,**<br>
+**Rejoice in Him and be glad.**<br>
 
-My soul long for the Lord<br>
-Rise O Lord to our need<br>
-Make your power known<br>
+My soul long for the Lord,<br>
+Rise, O Lord, to our need.<br>
+Make your power known.<br>
 
 With the Lord  is mercy<br>
-And fullness of Redemption<br>
-Praise be his name<br>
+And fullness of redemption:<br>
+Praise be his name.<br>
 
-Show O Lord your way<br>
-Lead us to your home<br>
-Light the way for us<br>
+Show, O Lord, your way;<br>
+Lead us to your home;<br>
+Light the way for us.<br>
 
-Sing praise to the Lord<br>
-Proclaim his glorious name<br>
-Open your hearts to him<br>
+Sing praise to the Lord;<br>
+Proclaim his glorious name;<br>
+Open your hearts to Him.<br>
 <br>
-A.50<br>
-The Lord our God is the Lord of Lords<br>
-Sov’reign of all is he<br>
-He is the great and mighty<br>
-And the Holy one<br>
-The Lord our God is He (2)<br>
+# A.50<span> THE LORD OUR GOD<br>
+### ***Chorus:***<br>
+**The Lord our God is the Lord of Lords,**<br>
+**Sov’reign of all is He.**<br>
+**He's the great and mighty**<br>
+**And the Holy one,**<br>
+**The Lord our God is He. (2)**<br>
 
-He cares for no ones status<br>
-He will not take a bribe<br>
-His justice gives to widows<br>
-And every Orphan child<br>
+He cares for no one's status,<br>
+He will not take a bribe.<br>
+His justice gives to widows,<br>
+And every orphan child.<br>
 
 He cares about the alien<br>
-Who lives within our Land<br>
-Who lives within our Land<br>
+Who lives within our Land.<br>
 We too must love the alien<br>
-And give him a helping hand<br>
+And give him a helping hand.<br>
 
-So serve the Lord and always<br>
+So serve the Lord and always,<br>
 His law of justice keep<br>
 And teach it to your children<br>
-When they rise up from sleep<br>
+When they rise up from sleep.<br>
 <br>
-A.51<br>
-All the nations praise the Lord<br> 
-All the nations of the earth<br>
-Praise the Lord who brings to birth<br>
-The  greatest star, the smallest flower, alleluia<br>
+# A.51<span> ALL THE NATIONS, PRAISE THE LORD<br>
+### ***Chorus:***<br>
+**All the nations of the earth,**<br>
+**Praise the Lord who brings to birth**<br>
+**The  greatest star, the smallest flower, alleluia.**<br>
 
-Let the heavens praise the Lord, alleluia<br>
-Moon and stars praise the Lord, alleluia<br>
+Let the heavens praise the Lord, alleluia!<br>
+Moon and stars praise the Lord, alleluia!<br>
 
-Snow capped mountains….. Rolling Hill…<br>
+Snow capped mountains... Rolling hills...<br>
 
-Deep sea water….. Gentle Rain……<br>
+Deep sea water... Gentle rain...<br>
 
-Roaring Lion…. Singing Birds….<br>
+Roaring lion... Singing birds...<br>
 
-Kings and Queens Young and Old<br>
+Kings and Queens... Young and old...<br>
 <br>
-A.52<br>
-Shout to the Lord,<br>
-all the earth with joy alleluia!<br>
-Splendour and beauty belong to Him, alleluia!<br>
+# A.52<span> SHOUT TO THE LORD / Psalm 94<br>
+### ***Chorus:***<br>
+**Shout to the Lord,**<br>
+**all the earth with joy, alleluia!**<br>
+**Splendour and beauty belong to Him, alleluia!**<br>
 
 Come to the Lord giving thanks and with songs<br>
 Let's hail the rock who saves us.<br>
@@ -526,81 +546,90 @@ To Him the sea belongs.<br>
 Come, let us bow and bend low, let us kneel<br>
 Before the God who made us.<br>
 We are the people who belong to his pasture,<br>
-"Ihe flock led by his hand.<br>
+The flock led by his hand.<br>
 
 O that today you would listen to his voice<br>
 His word heed when he calls.<br>
 Praise to the Father, the Son and the Spirit,<br>
 Both now and evermore.<br>
 <br>
-A.53<br>
-In the Lord is my Hope<br>
-In the Lord is my Shield and my strength<br>
-He’s my fortress : I stand firm<br>
+# A.53<span> IN THE LORD IS MY HOPE / Psalm 90<br>
+### ***Chorus:***<br>
+**In the Lord, is my hope.**<br>
+**In the Lord, is my help.**<br>
+**He's my Shield and my strength.**<br>
+**He’s my fortress: I stand firm.**<br>
 
-I’ve no fear of the night and its shadow<br>
-I’ve no fear of the plague that prowls around<br>
-For your light shines, O Lord, in the darkness<br>
-and your brightness leads on<br>
+I’ve no fear of the night and its shadow,<br>
+I’ve no fear of the plague that prowls around,<br>
+For your light shines, O Lord, in the darkness,<br>
+and your brightness leads me on.<br>
 
-I’ve no fear if alone I’ll be walking<br>
-I’ve n fear if the journey is so long<br>
-For its you, Lord, the way to the Father<br>
-On your path, I am safe<br>
+I’ve no fear if alone I’ll be walking,<br>
+I’ve no fear if the journey is so long,<br>
+For it's you, Lord, the way to the Father,<br>
+On your path, I am safe.<br>
 
-I’ve no fear of the death that surrounds me<br>
-I’ve no fear in a world of woes and ills<br>
+I’ve no fear of the death that surrounds me,<br>
+I’ve no fear in a world of woes and ills,<br>
 For I know, Lord, you grant life eternal<br>
-If I only hope in you<br>
+If I only hope in you.<br>
 
-I’ve no fear if assailed by disaster<br>
-I’ve no fear in the midst of pain and gloom<br>
-For you are, Lord, my joy, my salvation<br>
+I’ve no fear if assailed by disaster,<br>
+I’ve no fear in the midst of pain and gloom,<br>
+For you are, Lord, my joy, my salvation.<br>
 Alleluia! Praise the Lord!<br>
 <br>
-A.54<br>
+# A.54<span> REJOICE IN THE LORD<br>
 Rejoice in the Lord always<br>
-and again I say rejoice (2)<br>
+and again I say rejoice. (2)<br>
 Rejoice, Rejoice<br>
-and again I say rejoice(2)<br>
+and again I say rejoice. (2)<br>
 <br>
-A.55<br>
-We are gathering together unto him<br>
+# A.55<span> WE ARE GATHERING<br>
 
-We are gathering together unto him (2)<br>
-Unto him shall the gathering of the people be<br>
-We are gathering together unto him<br>
+We are gathering together unto Him, (2)<br>
+Unto Him shall the gathering of the people be,<br>
+We are gathering together unto Him.<br>
 
-We are Singing…<br>
+We are Singing together unto Him, (2)<br>
+Unto Him shall the singing of the people be,<br>
+We are singing together unto Him.<br>
 
-We are offering…..<br>
+We are offering together unto Him, (2)<br>
+Unto Him shall the offering of the people be,<br>
+We are offering together unto Him.<br>
 
-We are praying…..<br>
+We are praying together unto Him, (2)<br>
+Unto Him shall the praying of the people be,<br>
+We are praying together unto Him.<br>
 <br>
-A.58<br>
-Joyfully come to proclaim the Lord with song<br>
-Joyfully come to proclaim the Lord<br>
+# A.58<span> JOYFULLY COME<br>
+### **Chorus:***<br>
+**Joyfully come to proclaim the Lord with song,**<br>
+**Joyfully come to proclaim the Lord.**<br>
 
-Know that He, the Lord, is God and we His people<br>
-Enter now with courts with songs of thankful praise<br>
+Know that He, the Lord, is God and we His people.<br>
+Enter now his courts with songs of thankful praise.<br>
 
-Quench your thirst<br>
-Drink from the springs of living water<br>
-Come, be filled, sit at the table of his word<br>
+Quench your thirst,<br>
+Drink from the springs of living water.<br>
+Come, be filled, sit at the table of his word.<br>
 
-He has gathered us together like a shepherd<br>
-To his flock he gives his body and his blood<br>
+He has gathered us together like a shepherd.<br>
+To his flock he gives his body and his blood.<br>
 
-Let’s go up, come to the Lord’s most holy mountain<br>
-Stay with him until we learn his way of love<br>
+Let’s go up, come to the Lord’s most holy mountain,<br>
+Stay with him until we learn his way of love.<br>
 <br>
-A.59<br>
-O God, my God, for you my soul is is thirsting<br>
+# A.59<span> O GOD, MY GOD ? Psalm 62<br>
+### ***Chorus:***<br>
+**O God, my God, for you my soul is is thirsting.**<br>
 
-O God, you are my God, for you I long.<br>
+O God, you are my God, for you I long,<br>
 For you nmy soul is thirsting.<br>
 
-Like a dry weary land without water.<br>
+Like a dry weary land without water,<br>
 my body pines for you, O Lord.<br>
 
 So I gaze on you in the sanctuary<br>
@@ -609,23 +638,25 @@ to see your strength and your glory.<br>
 For your love is better than life itself,<br>
 My lips will loudly speak your praise.<br>
 <br>
-A.61<br>
-Alleluia, alleluia, alleluia (2)<br>
+# A.61<span> ALLELUIA<br>
+### ***Chorus:***<br>
+**Alleluia, alleluia, alleluia (2)**<br>
 
-The Lord is ever faithful and loving in his deeds<br>
-O happy those who hear his word with loving care<br>
+The Lord is ever faithful and loving in his deeds.<br>
+O happy those who hear his word with loving care.<br>
 
-The word of God is Truth, it gives eternal life<br>
-O  harden not your hearts, but listen to his voice<br>
+The word of God is truth, it gives eternal life,<br>
+O  harden not your hearts, but listen to his voice.<br>
 
-Accept the word of God, for what it really is<br> 
-The word of God almighty, and not our human words<br>
+Accept the Word of God, for what it really is,<br> 
+The word of God almighty, and not our human words.<br>
 <br>
-A.62<br>
-Day of joy, day of joy. alleluia,<br>
-Day of joy, day of Jesus, the Lord,<br>
-Day of joy, day of joy, alleluia,<br>
-It's the day when He rose from the dead.<br>
+# A.62<span> DAY OF JOY<br>
+### ***Chorus:***<br>
+**Day of joy, day of joy, alleluia,**<br>
+**Day of joy, day of Jesus, the Lord,**<br>
+**Day of joy, day of joy, alleluia,**<br>
+**It's the day when He rose from the dead.**<br>
 
 Lift up your hearts.... to Jesus Christ....<br>
 Lift up your hearts.... and praise his Name.<br>
@@ -636,8 +667,9 @@ Lift up your eyes.... He is your life.<br>
 Go hand in hand.... with Jesus Christ....<br>
 He is the Way... Give Him your love.<br>
 <br>
-A.63<br>
-The joy of the Lord is my strength (4)<br>
+# A.63<span> THE JOY OF THE LORD<br>
+### ***Chorus:***<br>
+**The joy of the Lord is my strength (4)**<br>
 
 If you want joy, you must sing for it.<br>
 
@@ -645,30 +677,31 @@ My heart is filled with laughter, ha, ha, ha<br>
 
 Oh, God lives in you and He lives in me.<br>
 <br>
-A.64<br>
-Celebrate God with your hands<br>
-Celebrate God with your voice<br>
-Celebrate God in all that you do<br>
-And he will be with you<br>
+# A.64<span> CELEBRATE GOD<br>
+**Celebrate God with your hands.**<br>
+**Celebrate God with your voice.**<br>
+**Celebrate God in all that you do**<br>
+**And he will be with you.**<br>
 
-Listen to him with your eyes<br>
-Listen to him with your heart<br>
-Listen to him as he speaks with you<br>
-and He will be with you<br>
+Listen to Him with your eyes.<br>
+Listen to Him with your heart.<br>
+Listen to Him as he speaks with you,<br>
+and He will be with you.<br>
 
-Touch him in all those you love (2)<br>
-Touch him in them and let them touch you<br>
-and he will be with you<br>
+Touch Him in all those you love (2)<br>
+Touch Him in them and let them touch you,<br>
+and He will be with you.<br>
 
 Celebrate God with us (2)<br>
-Emmanuel Emmanuel<br>
-Celebrate God with us<br>
+Emmanuel, Emmanuel,<br>
+Celebrate God with us.<br>
 <br>
-A.65<br>
-I place my hand in your hand and joyously<br>
-I walk along with you, O Lord (2)<br>
+# A.65<span> I PLACE MY HAND IN YOUR HAND<br>
+### ***Chorus:***<br>
+**I place my hand in your hand and joyously**<br>
+**I walk along with you, O Lord (2)**<br>
 
-You call me friend. no longer slave:<br>
+You call me friend, no longer slave;<br>
 Your loving self for me you gave<br>
 And all mankind you came to save:<br>
 So I'll follow you.<br>
@@ -683,76 +716,85 @@ To eat the bread and drink the wine<br>
 And thus enjoy your life divine.<br>
 So I'll sit with you.<br>
 
-Discord, with you, Inrd, has no part.<br>
+Discord, with you, Lord, has no part.<br>
 I must be one in mind and heart<br>
 With all my neighbours close and far.<br>
 So I'll bring them too.<br>
 <br>
-A.68<br>
-Yahweh is the God of my salvation.<br>
-I trust in Him and have no fear.<br>
-I sing of the joy which his love gives to me,<br>
-And I draw deeply from the springs of his<br>
-great kindness.<br>
+# A.68<span> YAHWEH<br>
+### ***Chorus:***<br>
+**Yahweh is the God of my salvation.**<br>
+**I trust in Him and have no fear.**<br>
+**I sing of the joy which his love gives to me,**<br>
+**And I draw deeply from the springs of his great kindness.**<br>
 
 Open our eyes to the wonder of this moment,<br>
 The beginning of another day.<br>
 
 Be with us, Lord, as we break<br>
-through with each other.<br>
+through with each other;<br>
 To find the trust and beauty of each friend.<br>
 
-When evening comes and our day of toil is over.<br>
+When evening comes and our day of toil is over,<br>
 Give us rest, O Lord, in the joy of many friends.<br>
 
-Take us beyond the vision of this day. to<br>
-The deep and wide ways of your infinite love and life.<br>
+Take us beyond the vision of this day, to<br>
+the deep and wide ways of your infinite love and life.<br>
 <br>
-A.72<br>
-Bless the Lord. oh my soul,<br>
-Bless the Lord, oh my soul,<br>
-and all that is within me. bless his Holy name.<br>
+# A.72<span> BLESS THE LORD<br>
+Bless the Lord, oh my soul, (2)<br>
+and all that is within me,<br>
+bless his Holy name.<br>
 
 Praise the Lord.<br>
 
 Love the Lord.<br>
 <br>
-A.73<br>
-Enter his gates with thanks giving in your hearts<br> 
-Enter his courts with praise<br>
-Enter his gates with thanks giving in your hearts<br>
-For he has made me glad<br>
-He has made me glad (2)<br>
-Jesus has made me glad<br>
-Enter his courts with thanks giving in your hearts<br>
-For he has made me glad<br>
+# A.73<span> ENTER HIS GATES<br>
 
-Sing to the Lord and make music unto him<br>
-Sing to the Lord with joy<br>
+Enter his gates with thanksgiving in your hearts<br> 
+Enter his courts with praise.<br>
+Enter his gates with thanksgiving in your hearts,<br>
+For he has made me glad.<br>
+### ***Chorus:***<br>
+**He has made me glad, (2)**<br>
+**Jesus has made me glad.**<br>
+**Enter his courts with thanksgiving in your hearts,**<br>
+**For he has made me glad.**<br>
 
-Worship, bend low while proclaiming he is God<br>
-Praise to the Lord most high<br>
+Sing to the Lord and make music unto Him,<br>
+Sing to the Lord with joy.<br>
+Sing to the Lord and make music unto Him,<br>
+For he has made me glad.<br>
+
+Worship, bend low while proclaiming He is God.<br>
+Praise to the Lord most high.<br>
+Worship, bend low while proclaiming He is God.<br>
+For he has made me glad.<br>
 <br>
-A.74<br>
+# A.74<span> JUST LIKE A CHILD<br>
+
 Just  like a child who trusts his father dear<br>
-and who delights to feel his presence near<br>
-Just like a child whose mind has not a doubt<br>
-And whose heart is never proud<br>
+and who delights to feel his presence near,<br>
+Just like a child whose mind has not a doubt.<br>
+And whose heart is never proud.<br>
 
-Here I come O Lord Here I come just like a child<br>
-Here I come O Lord Here I come just like a child<br>
+**Here I come, O Lord,**<br>
+**Here I come just like a child.**<br>
+**Here I come, O Lord,**<br>
+**Here I come just like a child.**<br>
 
-Just like a child so weak we cannot stand<br>
-But who holds firm and tight his mother’s hand<br>
-Just like a child who sings in bright daylight<br>
-Fearing not the long dark night<br>
+Just like a child so weak he cannot stand,<br>
+But who holds firm and tight his mother’s hand,<br>
+Just like a child who sings in bright daylight.<br>
+Fearing not the long dark night.<br>
 
 Just like a child that guilty deeds oppress<br>
-With mind and heart in trouble and distress<br>
-Who throws himself into his mother’s arms<br>
-Sure she’ll free him from his qualms<br>
+With mind and heart in trouble and distress,<br>
+Who throws himself into his mother’s arms,<br>
+Sure she’ll free him from his qualms.<br>
 <br>
-A.75<br>
+# A.75<span> ALLELUIA, HEAR THE WORD<br>
 Hear the word<br>
 Alleluia (5 x 2)<br>
 
