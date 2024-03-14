@@ -181,9 +181,9 @@ Your steadfast love and care fill me with joy.<br>
 <br>
 # N.18<span> TAKE MY LIFE<br>
 
-Take my life, O Lord, take my life,
-**That my life be worship.**
-Take my life, O Lord, take my life,
+Take my life, O Lord, take my life,<br>
+**That my life be worship.**<br>
+Take my life, O Lord, take my life,<br>
 ### ***Chorus:***<br>
 **That my life resemble your life. (2)**
 
