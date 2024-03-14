@@ -1,3 +1,34 @@
+# N.1<span> FROM MY HEART BREAKS FORTH<br>
+### ***Chorus:***<br>
+**From my heart breaks forth**<br>
+**this lovely poem:**<br>
+**My life entire, O Lord, is yours evermore.**<br>
+
+From the gifts you shower upon me,<br>
+I bring to you,<br>
+O Lord, my life, my heart,<br> 
+my whole being athirst for you.<br>
+
+I thank you, O Father in heaven,<br>
+for your care of me,<br>
+For the faith, the love,<br>
+the friendship received from you.<br>
+
+I thank you, O Master of Life,<br>
+you have made me for yourself,<br>
+And my heart can have no<br>
+repose till it rests in you.<br>
+
+To you, O God of my youth,<br>
+the of my way,<br>
+I bring the love of my<br>
+heart in joy unfeigned.<br>
+
+Give thanks to the Father almighty,<br>
+to Jesus Christ the Lord,<br>
+To the Spirit who dwells in our hearts,<br>
+through endless ages.<br>
+<br>
 # N.5<span> TAKE AND RECEIVE<br>
 
 Take and receive, O Lord, my liberty,<br>
@@ -12,6 +43,35 @@ All things I hold, and all I own, are thine;<br>
 Thine was the gift, to thee I all resign.<br>
 Do thou direct and govern all and sway,<br>
 Do what thou wilt, command and I obey.<br>
+<br>
+# N.8<span> TAKE UP YOUR CROSS<br>
+### ***Chorus:***<br>
+**If you wish to be my disciple,**<br>
+**Take up your cross and follow me.**<br>
+
+The foxes have their holes, the birds their nest,<br>
+But I have not a place to take my rest.<br>
+
+Whoever loves his life, will only lose it.<br>
+It's only sacrifice that brings one gain.<br>
+
+All you who labour, come you who are burdened.<br>
+Take up my yoke as well and you'll find rest.<br>
+
+The one who holds the plough and looks behind,<br>
+My kingdom cannot serve, my peace won't find.<br>
+
+A servant surely is less than his master:<br>
+If they have hated me, they will hate you.<br>
+
+Take nothing for your pay, no bread, no money.<br>
+Your treasure must be one no moth destroys.<br>
+
+So let your loins be girt, your lamps aburning.<br>
+And be like those who wait for my return.<br>
+
+You who have followed me, when life is ended,<br>
+Will reap a hundredfold eternally.<br>
 <br>
 # N.9<span> GIVE ME JOY<br>
 
@@ -39,6 +99,45 @@ Give me peace to my mind, keep be resting.<br>
 Give me peace to my mind, I pray.<br>
 Give me peace to my mind, keep be resting,<br>
 Keep me resting till the end of day.<br>
+<br>
+# N.10<span> OH, THE LOVE OF MY LORD<br>
+
+Oh, the love of my Lord is the essence<br>
+Of all that I love here on earth.<br>
+All the beauty I see he has given to me<br>
+And his giving is gentle as silence.<br>
+
+Every day, every hour, every moment<br>
+Have been blessed by the strength of his love,<br>
+At the turn of each tide, he is there at my side.<br>
+And his touch is as gentle as silence.<br>
+
+There've been times when<br>
+I've turned from his presence<br>
+And I've walked other paths, other ways.<br>
+But I've called on his name<br>
+in the dark of my shame.<br>
+And his mercy was gentle as silence.<br>
+<br>
+# N.11<span> COME, LORD JESUS, COME<br>
+
+Come, Lord Jesus, come.<br>
+Come, take my hands, take them for your work.<br>
+### ***Chorus:***<br>
+**Take them for your service, Lord,**<br>
+**Take them for your glory, Lord.**<br>
+**Come, Lord Jesus, come.**<br>
+**Come, Lord Jesus, take my hands.**<br>
+
+... eyes, may they shine with joy.<br>
+
+... lips, may they speak your truth.<br>
+
+... feet, may they walk your path.<br>
+
+... heart, fill it with your love.<br>
+
+... life, take it for your own.<br>
 <br>
 # N.14<span> ALL FOR YOU<br>
 ### ***Chorus:***<br>
@@ -79,6 +178,50 @@ Even my body shall in safety rest.<br>
 
 Your presence makes my life on earth a heaven.<br>
 Your steadfast love and care fill me with joy.<br>
+<br>
+# N.18<span> TAKE MY LIFE<br>
+
+Take my life, O Lord, take my life,
+**That my life be worship.**
+Take my life, O Lord, take my life,
+### ***Chorus:***<br>
+**That my life resemble your life. (2)**
+
+Take my hands.<br>
+
+....heart.<br>
+
+....joy.<br>
+
+....death.<br>
+
+Take this bread...<br>
+That this bread become now your flesh.<br>
+
+Take this wine...<br>
+That this wine be changed to your blood.<br>
+<br>
+# N.19<span> YOUR WILL BE DONE<br>
+### ***Chorus:***<br>
+**Lord, your will be done,**<br>
+**Yes, Lord, your will be done.**<br>
+**You are our loving Father,**<br>
+**You know what's best for every one.**<br>
+
+When things are getting out of hand,<br>
+When things don't go on as we planned,<br>
+Then let us put our trust in you<br>
+And let us say:<br>
+
+Uncertainty is round the bend,<br>
+The worst could substitute the best,<br>
+Our rosy dreams are up in smoke.<br>
+Then let us say:<br>
+
+When those we loved and those who cared<br>
+Are no more near us — they are dead,<br>
+Our tear filled eyes are blind to see<br>
+That you are there:<br>
 <br>
 # N.20<span> OUR HEARTS WERE MADE FOR YOU<br>
 ### ***Chorus:***<br>
@@ -212,6 +355,23 @@ You will create and overthrow,<br>
 Reap harvests I will sow:<br>
 your word is mine.<br>
 <br>
+# N.28<span> 1 HAVE BEEN CRUCIFIED<br>
+### ***Chorus:***<br>
+**I have been crucified with Christ, (2)**<br>
+**It is no longer I who live**<br>
+**but Christ who lives in me.**<br>
+
+And the life I now live in the flesh,<br>
+I live by faith in the Son of God<br>
+Who loved me, who loved me<br>
+And gave himself for me.<br>
+
+Everything I count as a loss because<br>
+Of the precious worth of knowing Christ...<br>
+
+For in weakness is Jesus' power shown:<br>
+When I'm weak, I know I am strong in Him.<br>
+<br>
 # N.29<span> HERE I AM, LORD<br>
 ### ***Chorus:***<br>
 **Here I am, Lord, is it I, Lord?**<br>
@@ -280,7 +440,6 @@ In simplicity, charity, I follow. (2)<br>
 In simplicity, honesty, I follow. (2)<br>
 
 In simplicity, fidelity, I follow. (2)<br>
-
 <br>
 # N.32<span> TO FOLLOW THE LORD<br>
 ### ***Chorus:***<br>
@@ -302,4 +461,88 @@ To help those in need, for no gain.<br>
 To sense how oppressed are the poorest,<br>
 To struggle for justice and right,<br>
 To stand for the truth and be honest,<br>
-To die to oneself in the fight.
+To die to oneself in the fight.<br>
+<br>
+# N.34<span> I CALL YOU<br>
+### ***Chorus:***<br>
+**I call you from your brothers (sisters),**<br>
+**I send you in my name.**<br>
+**I'll light you with my Spirit's fire**<br>
+**To burn as my love's name.**<br>
+**I call you from your brothers (sisters)**<br>
+**And send you in my name.**<br>
+
+Tell them what I told to you,<br>
+My words will be your own.<br>
+They'll find me in the news you bring<br>
+As you make my secrets known.<br>
+
+Bring me all they have and need,<br>
+Because my Father cares.<br>
+Bring back his blessing and his peace<br>
+And the food of life he shares.<br>
+
+Be a shepherd to my flock<br>
+And love as I have done.<br>
+So they can see what "brother" ("sister") means<br>
+And can feel that they are one.<br>
+<br>
+# N.35<span> TAKE MY LIFE<br>
+### ***Chorus:***<br>
+**Take my life, O Lord, and ever let it stay**<br>
+**Consecrated to your care.**<br>
+**Take my life and give me your life abundantly.**<br>
+**Make it beautiful in service, beautiful and free.**<br>
+
+Lord, make my hands the channels of your love.<br>
+And may my feet walk in your way,<br>
+Take my voice and let it sing a song of praise.<br>
+From my lips may your word overflow.<br>
+
+To you I bring my intellect and will.<br>
+Lord, take my heart, make it your own,<br>
+Take my energy, my silver and my gold.<br>
+In exchange I will treasure your word.<br>
+
+Lord, make my body a living sacrifice.<br>
+Take and anoint it with your love.<br>
+Let me worship you in spirit and in truth.<br>
+By your touch may my life be renewed.<br>
+<br>
+# N.37<span> CALLED TO BE SERVANTS<br>
+### ***Chorus:***<br>
+**Called to be servants, called to be sons,**<br>
+**Called to be daughters, we're called to be one.**<br>
+**Called into service, called to be free;**<br>
+**You are called to be you and I'm called to be me.**<br>
+
+Children, come with wide open eyes.<br>
+Look at the water; you have been baptised.<br>
+You're free from the slav'ry that bound you to sin,<br>
+So live now as children in the kingdom of heav'n.<br>
+
+We are saints! forgiveness is sure,<br>
+Not of ourselves but the cross Christ endured.<br>
+We're free from the law that said:<br>
+"You must provide",<br>
+We're free to be servants; we're called,<br>
+we're baptised.<br>
+
+Jesus closed the dark pit of death.<br>
+He has breathed on us with his holy breath.<br>
+He gives the faith to respond to his News.<br>
+We're free to show mercy, to love, to be bruised.<br>
+<br>
+# N.38<span> I DELIGHT GREATLY IN THE LORD<br>
+### ***Chorus:***<br>
+**I delight greatly in the Lord,**<br>
+**My soul rejoices in my God. (2)**<br>
+
+For He has clothed me with garments of salvation,<br>
+And arrayed me in a robe of righteousness. (2)<br>
+
+For He has sent me to heal the broken-hearted<br>
+And proclaim to prisoners that they are free. (2)<br>
+
+For God's own Spirit is poured upon his servant,<br>
+He's anointed me with oil of gladness. (2)
