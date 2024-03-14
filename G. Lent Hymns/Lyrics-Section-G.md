@@ -1,3 +1,69 @@
+# G.1<span> YES, I SHALL ARISE<br>
+### ***Chorus:***<br>
+**Yes, I shall arise and return to my Father!**<br>
+
+To you, O Lord, I lift up my soul,<br>
+In you, O my God, I place all my trust.<br>
+
+Look down on me, have mercy, O Lord,<br>
+Forgive me my sins, behold all my grief.<br>
+
+My heart and soul shall yearn for your face,<br>
+Be gracious to me and answer my plea.<br>
+
+Do not withhold your goodness from me;<br>
+O Lord, may your love be deep in my soul.<br>
+
+To you I pray, have pity on me;<br>
+My God, I have sinned against your great love.<br>
+
+Mercy I cry, O Lord, wash me clean,<br>
+And whiter than snow my spirit shall be.<br>
+
+Give me again the joy of your help;<br>
+Now open my lips, your praise I will sing.<br>
+
+Happy are they forgiven by God,<br>
+Their sins blotted out, their guilt is no more.<br>
+<br>
+# G.2<span> O LORD, BE NOT MINDFUL<br>
+### ***Chorus:***<br>
+**O Lord, be not mindful of our guilt and our sins,**<br>
+**O Lord, do not judge us for our faults and offences.**<br>
+**May your merciful love be upon us.**<br>
+
+Help your people, Lord, O God our Saviour,<br>
+Deliver us for the glory of your name.<br>
+
+Pardon us, O Lord, all our sins,<br>
+Deliver us for the glory of your name.<br>
+
+Praise to you, O Lord,<br>
+through all ages without end,<br>
+Deliver us for the glory of your name.<br>
+<br>
+# G.5<span> ACCEPT ME, MY LORD<br>
+### ***Chorus:***<br>
+**Accept me, my Lord, accept me**<br>
+**for this while,**<br>
+**Accept me, my Lord.**<br>
+
+Let those orphaned days that passed<br>
+Without Thee, be forgotten.<br>
+
+Only spread this little moment wide across thy lap,<br>
+Holding it under thy light.<br>
+
+I have wandered in pursuit of voices<br>
+That drew me, yet led me nowhere.<br>
+
+Now let me sit in peace and listen to thy words<br>
+In the soul of my silence.<br>
+
+Do not turn away thy face<br>
+From my heart's dark secrets,<br>
+But burn them till they are alight with thy fire.<br>
+<br>
 # G.7 <span> MOTHER OF GOD, PLEAD WITH YOUR SON<br>
 ### ***Chorus:***<br>
 **Mother of God Plead with your Son,**<br>
@@ -48,6 +114,110 @@ And for all their faults<br>
 I will grant forgiveness;<br>
 Never more will I remember their sins.<br>
 <br>
+# G.12<span> RETURN, O LORD / Psalm 6<br>
+### ***Chorus:***<br>
+**Return, O Lord, deliver my soul. (a)**<br>
+**God of love, come to my help! (b)**<br>
+
+Gracious Lord, reprove me not in your anger,<br>
+Heal me, Lord, for I have no strength.<br>
+See, my soul is deeply disturbed. (b)<br>
+
+Every night my bed is drenched with my weeping<br>
+And my eyes waste away with grief.<br>
+Many are the foes that surround me. (b)<br>
+
+But the Lord has heard the sound of my weeping;<br>
+Now at last he has heard my plea<br>
+And he has accepted my prayer. (b)<br>
+<br>
+# G.13<span> HAVE MERCY, HEAL ME / Psalm 40<br>
+### ***Chorus:***<br>
+**Have mercy, heal me,**<br>
+**For I have sinned against you.**<br>
+
+O Lord, take pity on your child,<br>
+For I have sinned against you.<br>
+Keep me safe, rescue me, when disaster strikes.<br>
+
+My foes are speaking ill of me, For...<br>
+"O how long before he dies,<br>
+and his name with him?"<br>
+
+They come to me with empty words, For...<br>
+While their hearts, full of spite,<br>
+plot against my life.<br>
+
+They stand, my foes devising hurt, For...<br>
+Reckoning I deserve all that I endure.<br>
+
+"Some fatal sickness holds him down", For...<br>
+"He lies ill, never more will he rise again."<br>
+
+My friend has turned away from me, For...<br>
+Those who shared their bread with me,<br>
+have abandoned me.<br>
+
+But you, O Lord, will raise me up, For...<br>
+This I know you are my friend;<br>
+I shall be unharmed.<br>
+<br>
+# G.16<span> ALL YOU THAT LABOUR<br>
+
+All you that labour and are burdened,<br>
+O come to me.<br>
+
+To you, O Lord, we raise our hands in prayer.<br>
+When darkness shrouds your joy,<br>
+Stand firm by my side;<br>
+You will be strong in your faith.<br>
+### ***Chorus:***<br>
+Yes, Lord, we believe<br>
+That you have the words of eternal life.<br>
+
+All you that stumble on the way,<br>
+O come to me; To you, O Lord...<br>
+Good shepherd of my sheep,<br>
+On safe paths I lead;<br>
+All will return to the fold. Yes...<br>
+
+All you that hunger now and thirst,<br>
+O come to me. To you, O Lord...<br>
+I am the living bread<br>
+I give up my life.<br>
+Bringing salvation to the world. Yes...<br>
+
+All you that seek the God of peace,<br>
+O come to me, To you, O Lord...<br>
+I am the Son of God,<br>
+The Father dwells in me,<br>
+Source of all life, source of joy. Yes...<br>
+<br>
+# G.18<span> UNLESS A GRAIN OF WHEAT<br>
+### ***Chorus:***<br>
+**Unless a grain of wheat fall**<br>
+**in the ground and die,**<br>
+**It remains alone. But if it dies,**<br>
+**Then it yields a mighty harvest.**<br>
+
+I have come to bring fire to the earth<br>
+And how I wish it were blazing already.<br>
+
+Those who worship must worship in spirit<br>
+And in truth when they worship the Father.<br>
+
+God's goodness is proclaimed to the poor<br>
+And happy those whose faith does not falter.<br>
+
+Don't just say to me: Lord, Lord,<br>
+But see you do the will of my Father.<br>
+
+You can forecast the seasons and weather,<br>
+Can't you read the signs of your own times?<br>
+
+For our God is the God of the living<br>
+And his glory is man fully living.<br>
+<br>
 ## G.19<span> FORGIVE MY SINS / Psalm 50<br>
 ### ***Chorus:***<br>
 **Forgive my sins, O Lord.**<br>
@@ -72,6 +242,23 @@ And my tongue will sing aloud your praises.<br>
 
 Here my sacrifice: a broken spirit, Lord,<br>
 A humble contrite heart you will not spurn.<br>
+<br>
+# G.20<span> LORD, MY FRIEND<br>
+### ***Chorus:***<br>
+**Lord my friend, you're present to me.**<br>
+**You're my life, my strength, O my God.**<br>
+
+In the midst of much affliction,<br>
+When I'm feeling lost and helpless.<br>
+
+In the days of painful crises,<br>
+When my heart is sad and lonely.<br>
+
+When I'm guilty of offences,<br>
+When assailed by strong temptations.<br>
+
+In the happy hours of sunshine,<br>
+When my mind is in high spirits.<br>
 <br>
 # G.21<span> HEAR MY CRY<br>
 ### ***Chorus:***<br>
@@ -145,6 +332,25 @@ Some see their lives as they never could before.<br>
 And some people find<br>
 that they must now begin to change.<br>
 <br>
+# G.25<span> HOSEA<br>
+
+Come back to me with all your heart.<br>
+Don't let fear keep us apart.<br>
+
+Trees do bend, though straight and tall;<br>
+So must we to others call.<br>
+### ***Chorus:***<br>
+**Long have I waited for your coming home to me**<br>
+**And living deeply our new life.**<br>
+
+The wilderness will lead you<br>
+To your heart where I will speak.<br>
+Integrity and justice<br>
+With tenderness you shall know.<br>
+
+You shall sleep secure with peace,<br>
+Faithfulness will be your joy.<br>
+<br>
 # G.27<span> I HAVE ROAMED<br>
 
 I have roamed, I have groped in the night,<br>
@@ -207,6 +413,36 @@ Love that has raised me from death to life,<br>
 Filling my heart with the Spirit of Christ<br>
 To be your child once more.<br>
 <br>
+# G.32<span> FILL ME<br>
+### ***Chorus:***<br>
+**Fill me with your Spirit, Lord, fill me,**<br>
+**That my heart may keep praising and**<br>
+**my life may be love.**<br>
+
+From the pit, could I sing your praises?<br>
+Can the dust ever tell your fame?<br>
+Hasten, Lord, let your Spirit heal me,<br>
+Then my soul shall be filled with joy.<br>
+
+How can I, when my soul is troubled,<br>
+Think of love, when I'm filled with pain?<br>
+Thank you, Lord, for your constant friendship<br>
+Warms my heart, makes me love again.<br>
+<br>
+# G.34<span> DO NOT BE AFRAID<br>
+### ***Chorus:***<br>
+**Do not be afraid, do not be afraid.**<br>
+**I am with you to bring light to your life!**<br>
+
+Lord, you have called me to this desert place.<br>
+Speak to my heart your words of love, tenderly.<br>
+
+Father, behold I come to do your will.<br>
+So let the Spirit of your Son breathe in me.<br>
+
+Lord, you have touched my life and I have grown.<br>
+You make my spirit turn to you, constantly.<br>
+<br>
 # G.36<span> THOUGH THE MOUNTAINS<br>
 ### ***Chorus:***<br>
 **Though the mountains may fall**<br>
@@ -234,6 +470,23 @@ As He swore to your fathers,<br>
 When the flood destroyed the land.<br>
 He will never forsake you;<br>
 He will swear to you again.<br>
+<br>
+# G.38<span> LAY YOUR HANDS<br>
+### ***Chorus:***<br>
+**Lay your hands gently upon us.**<br>
+**Let their touch render your peace.**<br>
+**Let them bring your forgiveness and healing.**<br>
+**Lay your hands, gently lay your hands.**<br>
+
+You were sent to free the brokenhearted.<br>
+You were sent to give sight to the blind.<br>
+You desire to heal all our illnesses,<br>
+Lay your hands, gently lay your hands.<br>
+
+Lord, we come to you through one another.<br>
+Lord, we come to you in our need.<br>
+Lord, we come to you, seeking wholeness.<br>
+Lay your hands, gently lay your hands.<br>
 <br>
 # G.39<span> HOW MUCH LONGER, LORD / Psalm 12<br>
 ### ***Chorus:***<br>
@@ -266,6 +519,132 @@ We confess, we detest our disunity.<br>
 We have lived for ourselves, failed in charity.<br>
 Banish, Lord, from our hearts bitterness and pain.<br>
 Cleanse, us Lord, heal our lives with your Spirit’s flame.<br>
+<br>
+# G.42<span> ALL I NEED IS LOVE / Psalm 49<br>
+### ***Chorus:***<br>
+**All I need is love, (2)**<br>
+**I take no delight in your offering,**<br>
+**but in a humble heart.**<br>
+**All I need is love, (2)**<br>
+**All I want is a contrite spirit,**<br>
+**all I need is love.**<br>
+
+How can you recite my commandments<br>
+And take my covenant on your lips?<br>
+You who despise my law<br>
+And throw my words to the winds?<br>
+
+You throw your lot with the sinners,<br>
+You're always ready to tell lies.<br>
+Such are your ways, your deeds,<br>
+Should I make no signs and be quiet?<br>
+
+What I really want from my people:<br>
+A sincere sacrifice of praise,<br>
+The trust that I come to save,<br>
+A cry to me in their needs.<br>
+<br>
+# G.44<span> WHOM DO YOU SEEK?<br>
+### ***Chorus:***<br>
+**Whom do you seek? Whom are you looking for?**<br>
+**Whom do you seek? Why do you weep?**<br>
+
+I seek the one who brings peace to my people,<br>
+He whose gentleness touches my heart.<br>
+He speaks still in the depths of my being.<br>
+How I pray that we never shall part!<br>
+
+I seek the one who shows love for all nations<br>
+Heals all suffering, offers us peace.<br>
+He has promised a life without ending.<br>
+Love and laughter and joy will not cease.<br>
+
+I am the one who brings peace to all nations,<br>
+I am the one who brings love to you all.<br>
+Come to me and your hearts will be restful<br>
+I have come to bring life to you all.<br>
+
+I am the One whom you are looking for!<br>
+I am the One: have faith in Me!<br>
+<br>
+# G.45<span> SON OF DAVID<br>
+### ***Chorus:***<br>
+**Son of David, have pity on me,**<br>
+**Son of God, hear my plea.**<br>
+**O Son of David, have pity on me,**<br>
+**Listen to my plea!**<br>
+
+Those who sow in tears and pain,<br>
+Will return rejoicing.<br>
+The lamb will leap, the lion lie down,<br>
+On your day, O Lord.<br>
+
+He has borne our grief and pain,<br>
+Burdened down with sorrow.<br>
+Who'd believe what we have seen?<br>
+Like a lamb He is slain.<br>
+
+By his word this world was made,<br>
+Every grain and flower.<br>
+The poor stand near to God, the Lord!<br>
+Those who seek his face.<br>
+<br>
+# G.46<span> THOSE WHO WEEP WILL REJOICE / Psalm 126<br>
+
+All your building is vain unless God is the builder,<br>
+All your watching is vain unless<br>
+God is the watchman!<br>
+### ***Chorus:***<br>
+**Those who weep as they sow,**<br>
+**Will rejoice at the harvest.**<br>
+**Give your thanks to the Lord**<br>
+**Who brings joy out of sorrow.**<br>
+**He turns sorrow into joy!**<br>
+
+You may rise before dawn,<br>
+seek your bed after nightfall,<br>
+And yet labour in vain, for the Lord<br>
+gives the increase.<br>
+
+In his love God makes rich by<br>
+his present of children,<br>
+Who, like arrows in flight,<br>
+will be swift to protect you.<br>
+
+What a blessing God gives<br>
+in this quiver of arrows!<br>
+When the enemy stands<br>
+in the gate of the city.<br>
+<br>
+# G.50<span> COME, JESUS, COME<br>
+### ***Chorus:***<br>
+**Come, Jesus, come into this heart of stone.**<br>
+**Melt it and mould it, Lord, make it your own.**<br>
+
+For the Lord looks down from heaven,<br>
+He sees all who dwell on earth.<br>
+Each and ev'ry heart he fashions,<br>
+He observes and discerns its deeds.<br>
+
+Since the heart is most deceitful,<br>
+Its ways who can understand?<br>
+Only you, O Lord, can test it,<br>
+And repay what our deeds deserve.<br>
+
+People judge outward appearance,<br>
+But God esteems the heart,<br>
+For his Word is like a two-edged sword,<br>
+It discerns and lays bare our thoughts.<br>
+
+Many with their words approach me,<br>
+They honour me with their lips,<br>
+Shame on them: they hide their purpose,<br>
+Though they know that their hearts I see.<br>
+
+Rend your hearts and not your garments,<br>
+Return to the Lord your God,<br>
+He is gracious and compassionate,<br>
+Slow to anger and full of love.<br>
 <br>
 # G.52<span> YOU BE MY LIGHT, O LORD<br>
 
@@ -338,4 +717,102 @@ In your arms you let me stay.<br>
 But the world keeps always judging,<br>
 For my heart it does not see,<br>
 Only you with eyes so searching<br>
-See the change of heart in me!
+See the change of heart in me!<br>
+<br>
+# G.55<span> THE LORD IS NEAR<br>
+### ***Chorus:***<br><br>
+**The Lord is near to all who call on Him.**<br>
+**Rest in Him alone, rest in Him alone.**<br>
+
+He will guard your coming and your going,<br>
+He will be the one to guard your life.<br>
+The sun will not harm you in the daylight,<br>
+And the Lord will watch you through the night.<br>
+
+He has seen a thousand years go past Him,<br>
+Swiftly as a morning fades to night.<br>
+So come, let Him fill you with His wisdom,<br>
+To number all your days aright.<br>
+
+Lord, in You I come to take my refuge,<br>
+Through the night You ever counsel me.<br>
+O Lord, You have formed me to be holy,<br>
+And to rest within You PEACEFULLY.<br>
+
+Trust in Him for ever, O my people,<br>
+Pour out all your hearts before the Lord.<br>
+Your God is a rock of strength, your glory;<br>
+In the Lord is all your hope restored.<br>
+<br>
+# G.58<span> WHAT DOES IT PROFIT A MAN?<br>
+### ***Chorus:***<br>
+**What does it profit a man,**<br>
+**If he gains the whole wide world**<br>
+**But suffers the loss of his soul?**<br>
+**Yes, suffers the loss of his soul?**<br>
+
+I have spent my whole life in enjoyment,<br>
+Good food, good drinks, silk to wear,<br>
+With friends who like me let the moments pass<br>
+With never a thought or a care. But...<br>
+
+O Lord, I must rise in repentance.<br>
+Against Your love have I sinned.<br>
+But now is the time to return to You:<br>
+I know that Your word makes me free, for...<br>
+
+"Be never the slave of two masters:<br>
+You can't serve both God and gold.<br>
+Why worry about what to eat and drink?<br>
+Your Father knows all that you need", so...<br>
+
+"Provide yourselves with good purses<br>
+And save your riches in heav'n,<br>
+Where thieves cannot reach neither moth destroy,<br>
+You must be rich in God's sight." So...<br>
+<br>
+# G.60<span> BE NOT AFRAID<br>
+
+You shall cross the barren desert,<br>
+But you shall not die of thirst.<br>
+You shall wander far in safety<br>
+Though you do not know the way.<br>
+You shall speak your words to foreign people<br>
+and they will understand.<br>
+You shall see the face of God and live.<br>
+### ***Chorus:***<br>
+**Be not afraid! I go before you always.**<br>
+**Come, follow me and I will give you rest.**<br>
+
+If you pass through raging waters<br>
+In the sea you shall not drown.<br>
+If you walk amid the burning flames,<br>
+You shall not be harmed.<br>
+If you stand before the pow'r of hell<br>
+And death is at your side,<br>
+Know that I am with you through it all!<br>
+
+Blessed are the poor,<br>
+For the kingdom shall be theirs.<br>
+Blest are you that weep and mourn,<br>
+For one day you shall laugh.<br>
+And if wicked ones insult<br>
+And hate you all because of Me,<br>
+Blessed, blessed are you!<br>
+<br>
+# G.62<span> CREATE IN ME<br>
+### ***Chorus:***<br>
+**Create in me a clean heart, O God,**<br>
+**And renew a right spirit in me. (2)**<br>
+
+Wash me, cleanse me, purify me,<br>
+Make my heart as white as snow.<br>
+
+'Gainst you, Lord, alone I've sinned,<br>
+What's evil in your sight I've done.<br>
+
+Let the bone you've crushed rejoice,<br>
+My tongue shall sing your praise again.<br>
+
+Here's my sacrifice to you:<br>
+A humble, contrite heart, O Lord.
