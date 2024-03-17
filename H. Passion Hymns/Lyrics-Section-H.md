@@ -1,5 +1,5 @@
 # H.1<span> WE HAIL THEE<br>
-### ***Chorus: ***<br>
+### ***Chorus:***<br>
 **We hail thee, Saviour and Lord,**<br>
 **Thy cross ever be adored!**<br>
 
@@ -19,7 +19,7 @@ Renew  in us thy passion,<br>
 And grant us eternal life.<br>
 <br>
 # H.3<span> PRAYER TO THE SUFFERING INNOCENT / Psalm 21<br>
-### ***Chorus-1: ***<br>
+### ***Chorus-1:***<br>
 **My Father, not my will**<br>
 **But yours alone be done.**<br>
 ### ***Chorus-2:***<br>
@@ -179,7 +179,7 @@ Let all the living creatures on earth give Him praise,<br>
 For Sion he will save and those who love his name.<br>
 <br>
 # H.11<span> FROM THE DEPTHS I CALL / Psalm 129<br>
-### ***Chorus: ***<br>
+### ***Chorus:***<br>
 From the depths I call to you, O Lord,<br>
 Listen to my cry.<br>
 
