@@ -645,7 +645,7 @@ Worthy is He, the Lamb that was slain,<br>
 His song of salvation: our fav'rite refrain,<br>
 O sing to the Chief Musician a glorious song.<br>
 <br>
-# (C).C73 THY LOVING KINDNESS<br>
+# (C)C.73 THY LOVING KINDNESS<br>
 
 Thy loving kindness is better than life, (2)<br>
 My lips shall praise Thee, thus will I bless Thee,<br>
