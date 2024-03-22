@@ -292,7 +292,7 @@ We are yours, we are yours.<br>
 **We love you, take our lives,**<br>
 **O Father, we are yours, we are yours.**<br>
 
-Your holy people stand washed your blood,<br>
+Your holy people stand washed in your blood,<br>
 Spirit filled, yet hungry we await your food,<br>
 Poor though we are we have brought ourselves to you:<br>
 We are yours, we are yours.
