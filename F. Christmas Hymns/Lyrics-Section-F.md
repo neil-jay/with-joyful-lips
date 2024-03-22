@@ -1,9 +1,10 @@
-F.3<br>
-Ant.1:<br>
-Glory to God on high and peace to all those He loves.<br>
-Ant.2:<br>
-God of God, Light of Light, begotten before all time.<br>
-Ant.3: All the ends of the earth have seen God's salvation.<br>
+# F.3<span> GLORY TO GOD ON HIGH / Psalm 88<br>
+### ***Chorus-1:***<br>
+**Glory to God on high and peace to all those He loves.**<br>
+### ***Chorus-2:***<br>
+**God of God, Light of Light, begotten before all time.**<br>
+### ***Chorus-3:***<br>
+**All the ends of the earth have seen God's salvation.**<br>
 
 I will sing for ever of your love,<br>
 My mouth will proclaim your truth,<br>
@@ -16,7 +17,7 @@ I will establish your dynasty forever,<br>
 And set up your throne through all ages.<br>
 
 The heavens proclaim your wonders,<br>
-The assembly of your holy ones. your truth.<br>
+The assembly of your holy ones, your truth,<br>
 Who in the skies can compare with the Lord?<br>
 Who is like the Lord among the sons of God?<br>
 
@@ -35,9 +36,9 @@ And on him my holy oil has been poured,<br>
 My hand shall always be with him<br>
 And my arm shall make him strong.<br>
 
-He will say to me: "You are my father.<br>
+He will say to me: "You are my father,<br>
 My God, the rock who saves me".<br>
-And I will make him my ßrstborn,<br>
+And I will make him my firstborn,<br>
 And the highest of the kings of the earth.<br>
 
 I will keep my love for him always,<br>
@@ -45,16 +46,17 @@ For him my covenant shall endure,<br>
 I will establish his dynasty forever,<br>
 Make his throne as lasting as the heavens.<br>
 
-His dynasty shall last forever.<br>
+His dynasty shall last forever,<br>
 In my sight his throne is like the sun,<br>
-Like the moon it shall endure forever.<br>
+Like the moon it shall endure forever,<br>
 A faithful witness in the skies.<br>
 <br>
-F.7<br>
-Ref.:<br>
-Be born in us, Incarnate Love! (2)<br>
+# F.7<span> BE BORN IN US<br>
+### ***Chorus:***<br>
+**Be born in us, Incarnate Love! (2)**<br>
 
-Take our flesh and blood and give us your humanity.<br>
+Take our flesh and blood<br>
+and give us your humanity.<br>
 
 Take our eyes and give us your vision;<br>
 Take our minds and give us your pure thought.<br>
@@ -64,10 +66,10 @@ Take our hands and fold them in your prayer.<br>
 
 Take our hearts and give them your will to love.<br>
 <br>
-F.11<br>
-Ant.:<br>
-Rejoice, rejoice, for Christ has come<br>
-and all have seen his salvation.<br>
+# F.11<span> REJOICE FOR CHRIST HAS COME / Psalm 97<br>
+### ***Chorus:***<br>
+**Rejoice, rejoice, for Christ has come**<br>
+**and all have seen his salvation.**<br>
 
 O sing to God new songs of praise<br>
 For all the wonders he's worked for us.<br>
@@ -90,25 +92,25 @@ With trumpets and the sound of horns,<br>
 To God, the King of creation.<br>
 
 Let ocean thunder with its waves,<br>
-"Ihe world and all that within it dwell.<br>
+The world and all that within it dwell.<br>
 Let all the rivers shout for joy,<br>
-The hills. the mountains together.<br>
+The hills, the mountains together.<br>
 
 Exult, the Lord is drawing near,<br>
 He comes to reign over all the earth,<br>
 The world with justice he will rule<br>
 And all the people with fairness.<br>
 <br>
-F.12<br>
+# F.12<span> SOMEWHERE FAR<br>
 Somewhere far from town and people<br>
 In a stable poor,<br>
 Jesus Christ was born of Mary,<br>
 In a cave obscure.<br>
-
-To seek him, don't trouble<br>
-To Bethlehem to go.<br>
-In silence you'll find him<br>
-And in the poor next door.<br>
+### ***Chorus:***<br>
+**To seek him, don't trouble**<br>
+**To Bethlehem to go.**<br>
+**In silence you'll find him**<br>
+**And in the poor next door.**<br>
 
 In the midst of noise and tumult,<br>
 Can his voice be heard?<br>
@@ -125,12 +127,13 @@ You can hear it still,<br>
 If you bend his cave to enter,<br>
 If you're of good will.<br>
 <br>
-F.15<br>
-The light of Christ has come into the world (2).<br>
+# F.15<span> THE LIGHT OF CHRIST<br>
+### ***Chorus:***<br>
+**The light of Christ has come into the world (2).**<br>
 
 All of us must be born again<br>
 To see the Kingdom of God;<br>
-"Ihe water and the Spirit bring<br>
+The water and the Spirit bring<br>
 New life in God's love.<br>
 
 God gave up his only Son<br>
@@ -143,21 +146,23 @@ So that we might have salvation;<br>
 From the darkness of our sins we walk<br>
 Into glory with Christ Jesus.<br>
 <br>
-F.16<br>
+# F.16<span> FOR UNTO US A CHILD IS BORN<br>
+
 For unto us a child is born,<br>
 Unto us a Son is given,<br>
 And the government shall be upon his shoulder<br>
 And his name shall be called:<br>
-Wonderful Counsellor. the Mighty God,<br>
+Wonderful Counsellor, the Mighty God,<br>
 The Everlasting Father<br>
 And the Prince of Peace is He.<br>
 <br>
-F.40<br>
-A light has shone upon us this day;<br>
-For the Lord, our Saviour, is born for us.<br>
+# F.40<span> A LIGHT HAS SHONE<br>
+### ***Chorus:***<br>
+**A light has shone upon us this day;**<br>
+**For the Lord, our Saviour, is born for us.**<br>
 
-And we shall call him: Wonder Counsellor, Mighty God,<br>
-Eternal Father, Prince of peace.<br>
+And we shall call him: Wonder Counsellor,
+Mighty God, Eternal Father, Prince of peace.<br>
 
 And his dominion far and wide shall spread, bringing peace.<br>
 So tender God's love for mankind.<br>
@@ -165,26 +170,28 @@ So tender God's love for mankind.<br>
 With perfect justice, he will rule the world, and with peace.<br>
 The peoples with his truth, He will judge.<br>
 
-Let all the heavens, sing a song to God, bless his name.<br>
+Let all the heavens, sing a song to God, bless his name,<br>
 Let all the lands and seas shout for joy.<br>
 
 To God be glory in the highest heav'n, evermore<br>
 And peace on earth to people of good will.<br>
 <br>
-F.41<br>
+# F.41<span> IN HIM IS LIFE<br>
+
 He came unto His own and His own received Him not,<br>
 But His life is the light of all (2).<br>
-
-In Him is life, in Him is life<br>
-And His life is the light of all (2).<br>
+### ***Chorus:***<br>
+**In Him is life, in Him is life**<br>
+**And His life is the light of all (2).**<br>
 
 But as many as received, to them He gave the power<br>
 To become the children of God (2).<br>
 <br>
-F.42<br>
-Alleluia, alleluia, alleluia, alleluia, alleluia.<br>
+# F.42<span> CHRISTMAS ALLELUIA<br>
+### ***Chorus:***<br>
+**Alleluia, (5)**<br>
 
-Joy to the world for today is born the SaViour,<br>
+Joy to the world for today is born the Saviour,<br>
 He is the Lord, He is Christ, the Prince of peace.<br>
 
 Glory to God in the highest heaven,<br>
@@ -193,9 +200,10 @@ Peace on earth to all people of good will.<br>
 Worship the Lord on this day most holy.<br>
 For a great light has shone down upon the earth.<br>
 <br>
-F.46<br>
-Christmas is a baby in a smelly stan,<br>
-Jesus Christ is homeless, God who loves us all.<br>
+# F.46<span> CHRISTMAS IS A BABY<br>
+### ***Chorus:***<br>
+**Christmas is a baby in a smelly stall,**<br>
+**Jesus Christ is homeless, God who loves us all.**<br>
 
 Christmas is a mother with a fiery care<br>
 For the spread of justice every one can share.<br>
@@ -207,24 +215,24 @@ Christmas is tough shepherds,<br>
 wonder in their eyes,<br>
 Finding God Almighty in a baby's cries.<br>
 
-Christmas is wise scholars turning<br>
-from their scrolls<br>
+Christmas is wise scholars turning from their scrolls<br>
 To the greatest mystery: God which flesh enfolds.<br>
 <br>
-F.48<br>
+# F.48<span> EVERY DAY, IT'S CHRISTMAS<br>
+
 Glory to God, peace to his people on earth.<br>
 We bring you tidings of joy<br>
 To share to all the world around:<br>
-For you a Saviour is born.<br>
-A baby swathed in rags.<br>
+For you a Saviour is born,<br>
+A baby swathed in rags,<br>
 Lying in a manger of straw: Emmanuel.<br>
-
-Christmas comes just once a year<br>
-But in your heart you know for sure,<br>
-Christmas isn't Christmas<br>
-If it does not last for ever, alleluia (2)<br>
-Fill every moment with his goodness,<br>
-Alleluia, every day, for every day is Christmas!<br>
+### ***Chorus:***<br>
+**Christmas comes just once a year**<br>
+**But in your heart you know for sure,**<br>
+**Christmas isn't Christmas**<br>
+**If it does not last for ever, alleluia (2)**<br>
+**Fill every moment with his goodness,**<br>
+**Alleluia, every day, for every day is Christmas!**<br>
 
 Gratitude is the reason why we are here.<br>
 We want to sing it aloud<br>
