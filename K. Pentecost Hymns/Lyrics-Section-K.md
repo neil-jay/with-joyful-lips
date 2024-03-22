@@ -60,15 +60,15 @@ From the mountains, valleys, plains.<br>
 From the workshops, from our tools,<br>
 From the office, from our schools.<br>
 ### ***Chorus-1:***<br>
-Onward to heaven, land for which we yearn!<br>
-Praise to you, O holy City, Church of Christ,<br>
-Tomorrow's home, where we hope one day<br>
-To gather all united round the throne.<br>
+**Onward to heaven, land for which we yearn!**<br>
+**Praise to you, O holy City, Church of Christ,**<br>
+**Tomorrow's home, where we hope one day**<br>
+**To gather all united round the throne.**<br>
 ### ***Chorus-2:***<br>
-Filled with hope, forth we go,<br>
-To the city of our God.<br>
-Onward then, Church of Christ,<br>
-Be united round his throne.<br>
+**Filled with hope, forth we go,**<br>
+**To the city of our God.**<br>
+**Onward then, Church of Christ,**<br>
+**Be united round his throne.**<br>
 
 Whether joyful or distressed,<br>
 With high spirits or depressed,<br>
