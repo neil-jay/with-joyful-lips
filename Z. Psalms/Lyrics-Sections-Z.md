@@ -50,7 +50,7 @@ to the Spirit who dwells in our hearts,<br>
 both now and for ever. Amen.<br>
 <br>
 # (Z)Z.8<span> GREAT IS YOUR NAME, LORD<br>
-### ***Chorus:**<br>
+### ***Chorus:***<br>
 **Great is your name, Lord,**<br>
 **Its majesty fills the earth.**<br>
 
