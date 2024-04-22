@@ -2002,10 +2002,10 @@ In truth and charity.<br>
 <br>
 # D.136<span> TAKE THIS BREAD<br>
 ### ***Chorus:***<br>
-Take this bread: it is my body.<br>
-Take this cup: it is my blood.<br>
-I will give you life eternal,<br>
-One day I will raise you up.<br>
+**Take this bread: it is my body.**<br>
+**Take this cup: it is my blood.**<br>
+**I will give you life eternal,**<br>
+**One day I will raise you up.**<br>
 
 You are the bread come down from  heaven,<br>
 Bread of God which give us life:<br>
